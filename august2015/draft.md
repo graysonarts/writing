@@ -48,9 +48,15 @@ Wincing at the name, "yes."  The purple ring pulses languidly as the processor g
 
 He touches the implant on his right wrist lighting up the time under his skin.  The glowing numbers read "10:45am".  15 minutes. He can do this.  Through slight movements of his fingers, he scrolls through menu items to find "car".  A couple more movements and a company car is waiting for him as he exits the corporate housing building.  He gets in the car, and it speeds off to Nakitashi Plaza.
 
+…
+
+11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
+
+Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker compliance" he begins.	
+
 # Vienne
 
-NewTek International Holdings is a umbrella corporation primarily responsible for stealing most of the technological advancements in the last 50 years.  Vienne is a handler for NewTek International Holdings. Her primary responsibility is being the contact person for a small group of spies that NewTek International Holdings employs.  These spies are in deep cover, sometimes years at a time, infiltrating neighboring corporate states, and relaying information back to NewTek so they can beat people to market with new technologies.
+NewTek International Holdings is an umbrella corporation primarily responsible for stealing most of the technological advancements in the last 50 years.  Vienne is a handler for NewTek International Holdings. Her primary responsibility is being the contact person for a small group of spies that NewTek International Holdings employs.  These spies are in deep cover, sometimes years at a time, infiltrating neighboring corporate states, and relaying information back to NewTek so they can beat people to market with new technologies.
 
 Vienne is pacing in her office on the top floor of the KK building, NewTek's espionage wing. They call themselves the Advanced Research Division, but that is just a euphemism. It is common knowledge, but NewTek is too powerful for any other corporate state to try to stop them.
 
