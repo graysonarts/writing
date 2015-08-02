@@ -131,3 +131,139 @@ She approaches him, and embraces him tightly, kissing him lightly on both cheeks
 "Yes." He holds out his left wrist, and she takes it. Her fingers travel lightly across his skin.  "Damn her" he thinks as a tingle travels down his spine.
 
 She removes a small device from her pocket.  It's a nondescript black box with two wires dangling from it.  She places the wires on each side of his wrist, and swipes the cover of the box.  "Remember, this will hurt a little." She presses the red X that has appeared on the box, and all of Dominic's muscles tense, eyes clenching against the pain.
+
+His mind shuts down, devoid of all thought, a cycle of colors swirling through his imagination. The colors take on forms and play out scenes from the last five years.  The initial mission briefing. The forced introduction to Max. Their first kiss. Their first date. Being hired at Nakitashi. The entire five years plays out in staccato.
+
+To this very moment, and his body relaxes collapsing to the ground.  Vienne makes no attempt to catch him as he crumples to the ground.  She pulls her foot out from under his head.  Dominic's eyes snap open as she removes the electrodes from his wrist.
+
+"That seemed a bit more painful than usual" a dispassionate calm mingles in with a sense of disgust.
+
+Dominic stands up, his hands, weak from the session, brush the dirt sticking to his clothes.  "Are you sure you had that configured correctly?  It was the full five years."
+
+"That's what they wanted."  She bites her fingernail as she stares at Nakitashi Plaza. "Did it hurt?"
+
+Dominic kneads the back of his neck, working out the tension that is building there.  "It's going to hurt tomorrow."
+
+"You better run along."  She touches her ear for a brief moment. "They say they want the plans for Project Unicorn, and that once stolen, they should be destroyed."
+
+"Project Unicorn is Max's project."
+
+"They know, their other intel sources within Nakitashi said that it is something we would be interested in keeping out of the hands of any other corporation. Too much potential.  You have your orders.  When it's complete, steal it, destroy all copies within Nakitashi, and return the plans to us."
+
+"And then what? Max will be devastated."
+
+"Then your mission will be complete and you can leave him."
+
+Dominic's eyes drift to the ground, and he blinks back tears, hoping Vienne does not see, does not interpret.
+
+"Nic, Is your mission compromised by attachment to your mark?"
+
+Head down, he looks up at Vienne, locking eyes. "En, my mission is not compromised by attachment."
+
+"Good, I'd hate to tell you what it meant we'd have to do next."
+
+"Are we done here?"  She nods, and he jogs away.
+
+# Max
+
+Max believes he is psychic. It is a stupid belief, but his mother swears it runs in the family. His grandmother and great grandmother also believed. They say it usually is handed down to the women in the family, but once in a great while, a man gets it.  The men in the family usually are not as powerful as the women, but nevertheless, the men get feels, and right now, Max has a feeling.
+
+The apartment is deathly quiet with Max sitting up in bed, goosebumps growing down his arms, spreading across his chest, and down his back.  It is the feeling of something bad coming.  It is 6am, and Dominic is not here which worries Max.  Dominic's routine is different today; Max instinctively feels it is wrong.
+
+A knock on the door breaks the silence; three sharp raps echo off the smooth polished tiles.  Max jumps slightly with each knock, in a stupor, a dangerous mix of not being a morning person and having too much on his mind.  He pops out of bed, walking to the door, signaling it to open.  Ji, the loud mouth Chinese girl who works in Structural, stands with her hands on her hips.  The same yellow jumpsuit she always wears in the morning strains against her body.
+
+"Oh, now I see why Dominic likes you."
+
+"What?"
+
+"Your penis."  Max looks down, so preoccupied he forgot to put clothes on, he does his best to cover himself with his hands, and retreats into the bathroom, throwing on a pair of shorts.
+
+Ji has come into the apartment and is surveying the surroundings.  The room is mostly clean, a small nightstand with a digital book sits to one side of the ample bed.  Like all Nakitashi employee apartments, everything is glaring white; color is an extravagance that Nakitashi believes serves no purpose.
+
+"What do you want, Ji?  It's quite early."
+
+"I know, Dominic usually makes me coffee, but he wasn't here this morning.  Where is he?"
+
+"I don't know" his brow furrows, and he massages his right deltoid for a moment before he notices and stops.
+
+"Fuck, I don't know how to make coffee."
+
+"Sorry."
+
+"Whatever, dainty,"  and she leaves, the door slides closed behind her.
+
+Max glares at the closed door and grumbles.
+
+# Ji
+
+Ji's apartment is covered in color. A vibrant mural of colors melding and mutating sprawl across the walls, ceiling, and floor.  As she enters, the lights start to flicker and fade.  The hacked digital assistant, overclocked, draws power from the lighting system to improve its abilities.
+
+"Fucker, lock down protocol 12."
+
+"Yes mistress" the digital assistant in subservient, but sultry male voice.  The cachunk of a heavy gauge lock slots into place, and the lights dim further.  "Full signal encryption enabled, opening channel to handler."
+
+A viewscreen appears from behind the one tile that is not covered in paint.  Vienne's face slowly fades onto the screen as it adjusts the brightness to the room.  A scowl, almost ever present when Ji is talking to her, appears on her face.
+
+"What do you want, Ji?  This is highly unusual."
+
+"My mark is outside of his usual routine."
+
+"Not something to be concerned with, and not something that required my immediate attention."
+
+"Sorry, but what should I do?"
+
+"Agent, you are capable of acting autonomously without our direct guidance.  What do you feel you should do?"
+
+"I don't know."
+
+Vienne types a few things on her console, out of sight, but audible.  "Our intel shows that he went on a morning run."
+
+"But why?"
+
+"That's for you to find out.  Ji, are you doing okay?  This is your first mission, so it's understandable that you might not have all the answers, we understand."
+
+"I'm fine. The mission is fine. it's great."
+
+"Ji, we have complete faith in your abilities. When things deviate, just file a report, preferably using form sixty-eight stroke A one."
+
+"Sure."
+
+"Good.  Bye."  The viewscreen fades to cerulean blue.  "Fucker, hallway view," and the screen bursts back into life, showing a view of the hallway just in time to see Dominic walk into the hallway, exhausted steps lingering, trailing down the hallway.  It takes him forever to reach his door.
+
+She continues to watch.  It is only moments before he is back out the door, towel wrapped around him, as he shuffles down the hall in shower shoes.  "Fucker, reset".  The room lights return back to normal, and the lock cachunks back open.  Her hurried steps carry her to the door and through it, bumping directly into Dominic.
+
+"Oh, crap, I'm sorry." she mutters, avoiding his eyes.
+
+"Ji, sorry I didn't make the coffee. I went for a run. I was coming to tell you I'll make you some after I shower."
+
+"Oh, it's okay."
+
+"Max said you came by looking for me."
+
+"Yeah…"
+
+"I'll shower quickly."
+
+"Okay."
+
+He turns around and continues down the hallway to shower.  Blood rushes to her face, causing crimson waves of heat to flush over her.  She watches has the muscles of his back undulate as he walks toward the showers.  The tattoo of a serpent curled around a sword seems alive as his shoulder blades crest and fall with his arms swinging.
+
+# Vienne
+
+Ji's face fades off of the holographic display.  Vienne sits back in her chair, body heavy and sinking into the supple nano-impregnated faux leather cushions which respond to the shift in pressure with agile little fingers, adjusting to support, cradle, and caress.
+
+A slender woman is sitting military straight in the chair across the desk.  The morning sun drenches her golden curls turning them into a blazing cascade of honey.  She wears a name tag which reads "Alexandrine Brant, Governess of the United Corporate States of America."
+
+"Sorry for the interruption.  Ji is one of our newest agents working in the field.  She has great potential, but doubts herself too much."
+
+"It is quite alright. It's important to make time for your employees, and to make them feel they are valuable members of your team."  Her voice thick with Bavarian influences.
+
+"Indeed.  Now where were we?"
+
+"You were just about to brief me on this Project Unicorn nonsense."
+
+"Ah yes. Project Unicorn. From our initial intel, it is a reprogramming and mind control technology that was previous thought to be impossible."
+
+"Reprogramming?"
+
+"Yes, if our intel is correct, Nakitashi is expecting to use it to induce complete company loyalty, squashing the worker rebellions once and for all.  This is troubling technology.  They could raise an army and would be in complete control of every unit.  This would undermine everything the UCSA has been working towards for the last ten years.
