@@ -321,3 +321,41 @@ The entry for today:
 *I do not know what I'm going to do.  My conscious is eating at me, and I can't talk to Dominic about it because of the security clearance for this project.  I wish they would just assign him to the project, so I wouldn't have to keep all of this from him.*
 
 He stops reading.  A vibration in his arm means that someone has tripped the proximity sensor.  He quickly locks the terminal, removes his gloves, and sits down, thumbing his holoprojector on, his news feed flashes into view as the door slides open.
+
+# Levi
+
+The whir of an ancient printer spins to life, spitting out sheets of dead trees with a black powder melted onto it using lasers.  The powder spells out words.  Levi likes ancient technology, the unconnected, bastions of the old world, the old nation, from the time before when the illusion of for the people by the people still existed. This ever present connected life is is a vile thing to him.
+
+Levi and his printer are housed in a small cabin in a no-man's land between his once beloved New Cascadia and the desert that stretches to the East.  The rough-hewn planks that line the walls bare the marks of a hand axe, sloppily applied, the random cuts show the frustration over time, a beautiful testament to why no one builds their own homes anymore.  The room is sparsely furnished, a small military cot sits in one corner and there is an old door sitting on top of some legs salvaged from a diner as a makeshift desk on which the printer sits along with a slender silver rectangle, hinged and open displaying a black screen with a single hash sign in white at the bottom.
+
+The paper is gliding out of the printer, cascading gracefully to the floor.  He snatches the last page out of the air.  *Another work order* He scans the page for the most important piece of information.  "$5b NewTek credits" is printed at the bottom of the page in large, heavy type.  Knees bending with heavy, echoing cracks, he bends to shuffle the rest of the pages off of the floor.
+
+He nods slowly.  *Some bio-nerd at Nakitashi, capture or kill, double money for capture than kill.*  He reads over the intel about position, current habits. *This guy doesn't go anywhere other than work and the dorms.*  "Hmmmm" breaks the silence.
+
+# Max
+
+Max keys in the code to his lab.  His disheveled hair wiggles at the air pressure difference as the lab door swings open.  His steps are slow and shuffling, his head hangs low.  Today has been a rough day.  Not looking up, he palms the door closed. "Lights, 50% please" his voice ragged with exhaustion.
+
+He jumps at the sound, "Hi Max."  Looking up, his eyes lock on Ji's short cropped hair, and then her eyes. 
+
+"Hi Ji, what are you doing here?"
+
+"I heard some rumors about your newest project."
+
+"Clearance, Ji, I can't talk about it.  How did you get in here?"
+
+She walks over to a terminal and types in a couple of commands on the terminal.  Her clearance record comes up on the screen.  "I have higher clearance than you.  I'm part of Nakitashi Corps security force, and you are in danger."
+
+"What?  How is that possible?"
+
+"I've been working on infiltrating NewTek's espionage division for quite some time.  They have me spying on Nic.  I'm not even sure why, nothing he is working on is worth stealing."
+
+"Nic is under surveillance from NewTek?"
+
+"Yes, and I caught him sneaking in here.  I don't know what he was planning, but something is happening, and I'm not sure what."
+
+"How am I in danger?"
+
+"NewTek is going to extract you.  They say Project Unicorn is too powerful.  I'm supposed to distract Nic so he remains unharmed and unaware."
+
+Max collapses onto the floor, tears filling his eyes.  "I wish I had never had this fucking idea," he wails.
