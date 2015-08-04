@@ -26,6 +26,18 @@ A smile creeps across Dominic's face, "Max hates when you call him that.  He's s
 
 "Fuck that, I'm not a morning person. I like to see your penis, and you make good coffee."  A hearty laughter erupts from her taking on the form of a deep guttural cough before petering out.
 
+# Levi
+
+Levi Kane, previously a one star general in the now defunct New Cascadia Army sleeps in a make shift shelter cobbled together out of the left over parts of a sun-bleached Impala, the aging interior crusty with wind blown sand, a fine powder of abrasion having worn the leather into a dull shine. The vibration of his silent alarm stirs him awake, and with deft movements, he is standing, sunglasses slamming onto his face.  The extraction is set for 6am, and 5:45am blinks languidly out from the lenses in a crisp red readout.
+
+He pulls up the dossier for his extract target, reading over the details of a midlevel human interaction engineer from a no name division in what used to be Utah.  "This woman isn't even worth the cost of this extraction," he mutters to the emptiness of the desert.
+
+The rumble of a motorcade echoes out across valley, bouncing off of the mesas surrounding the valley.  *Showtime*.  He quickly reviews the parameters of the mission. *one handler, two guards, three cars, all self-driven*.  He smirks. *too easy*.  He pulls out a small cylindrical device with a comically sized red button on it. He has a flair for the dramatic, and loves the aesthetics of movies from before the turn of the century.  Etched into the turned aluminum body of the device are the letters E, M, and P in a humanist san-serif font, bold, but not too overpowering.
+
+He waits, in the cover of his shelter.  The sound dopplers in as the motorcade gets closer.  The detonation device is buried under the road right where they are charted to turn.  The recon data suggests that she is in the middle car, so the plan is to detonate the device when the first car passes. *come on, you lazy sonofabitch, faster* he clenches his jaw, shaking his leg for extra emphasis. *Just a little more*.
+
+The first car passes over the spot, slowing to make the turn down the side road.  He presses in the plunger, and a shockwave of compressed sound rushes across the valley, and all three cars stop in their tracks.  In five quick strides, he is across the road, gun drawn.  Bang.  Light, silent steps, up and over the middle car. Bang. Bang. Rebound onto the middle car's roof. Crash, the windows cave in. Bang.  A woman screams, echoing repeatedly off the sandstone walls that box them in.  "You work for Nakitashi now."
+
 # Max
 
 The smooth silken sheet hangs lightly over Max's long, lithe body. Sunlight bathes the room, reflecting off the white tile, making it impossible for Max to escape it.  It is the time of the morning where the bedroom is stifling hot. The covers cascade to the ground as Max reflectively kicks them off, exposing his body to the sunlight. The sun skips across his naked body.  He rubs his eyes, trying to rouse his senses.  
@@ -52,7 +64,7 @@ He touches the implant on his right wrist lighting up the time under his skin.  
 
 11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
 
-Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker compliance" he begins.	
+Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker loyalty" he begins.	
 
 # Vienne
 
@@ -128,7 +140,7 @@ She approaches him, and embraces him tightly, kissing him lightly on both cheeks
 
 "Are you going to allow me to get the diagnostics report willingly?"
 
-"Yes." He holds out his left wrist, and she takes it. Her fingers travel lightly across his skin.  "Damn her" he thinks as a tingle travels down his spine.
+"Yes." He holds out his left wrist, and she takes it. Her fingers travel lightly across his skin.  *Damn her* a tingle travels down his spine.
 
 She removes a small device from her pocket.  It's a nondescript black box with two wires dangling from it.  She places the wires on each side of his wrist, and swipes the cover of the box.  "Remember, this will hurt a little." She presses the red X that has appeared on the box, and all of Dominic's muscles tense, eyes clenching against the pain.
 
@@ -256,7 +268,7 @@ A slender woman is sitting military straight in the chair across the desk.  The 
 
 "Sorry for the interruption.  Ji is one of our newest agents working in the field.  She has great potential, but doubts herself too much."
 
-"It is quite alright. It's important to make time for your employees, and to make them feel they are valuable members of your team."  Her voice thick with Bavarian influences.
+"It is quite all right. It's important to make time for your employees, and to make them feel they are valuable members of your team."  Her voice thick with Bavarian influences.
 
 "Indeed.  Now where were we?"
 
@@ -266,4 +278,46 @@ A slender woman is sitting military straight in the chair across the desk.  The 
 
 "Reprogramming?"
 
-"Yes, if our intel is correct, Nakitashi is expecting to use it to induce complete company loyalty, squashing the worker rebellions once and for all.  This is troubling technology.  They could raise an army and would be in complete control of every unit.  This would undermine everything the UCSA has been working towards for the last ten years.
+"Yes, if our intel is correct, Nakitashi is expecting to use it to induce complete company loyalty, squashing the worker rebellions once and for all.  This is troubling technology.  They could raise an army and would be in complete control of every unit.  This would undermine everything the UCSA has been working towards for the last ten years."
+
+Alexandrine shifts her weight in the chair, face scrunching, shifts a second time, and then stands, walking towards the window, eyes fixed on the horizon.
+
+"And you have agents on all the key players for this project?"
+
+"Fortune has favored us.  The principal researcher  on Project Unicorn was someone we had earmarked for forceful defection at some point in the future.  One of our best agents is currently infiltrated as his lover for the past four years."
+
+Alexandrine nods slowly, fingers tapping on the window, eye blank and glazing over as she considers this new information.  "And you've ordered the device plans retrieved and destroyed?"
+
+"Retrieve a copy, destroy the original, bring the copy here."
+
+"And what of the researcher?"
+
+Vienne takes a deep breath. "We hope he'll be too devastated from the betrayal that he will never try to make the device again."
+
+Alexandrine turns sharply around.  "Not good enough.  Kill or Capture.  These are, of course, strictly off the record recommendations.  As Governess, I cannot interfere with the operations of any of the corporations that are part of the union."
+
+Vienne lowers her eyes. "I do not think my agent will be capable of killing in this case; I'll get an extraction team to remove the researcher."
+
+She nods.  Her blond curls bounce playfully around her face. "Great.  Until next time." She snaps around to face the door. "Let's get this sorted by next week." And she walks out the door.
+
+"Fuck." Vienne's voice barely audible over the sound of the door sliding shut.
+
+# Dominic
+
+Dominic enters yet another lab in the biotech wing of Nakitashi, it looks like every other lab, but he knows this one better than even his own.  "Maximilian Bosko, Senior Neurotechnologist, Impulse Control" is lit up on the side of the door, glowing in a pale blue light that etch around the letters.  Max is not there, so Dominic punches in the access codes, and the door slides quietly open.  He places a small silver wedge on the floor, a new proximity sensor that he designed last week.
+
+Dominic slips through, palming the door closed behind him, a low gloom engulfs the room as the unfiltered light from outside slides out of view.  With hurried steps, the walks over the terminal, gloves appearing from his pocket and sliding onto his hands.  The terminal comes alive as he places his hands near the keyboard. A login prompt stares back at him.
+
+A litany of common passwords blink across the screen, each one shaking an incorrect indicator at him.  A brief moment passes, and then he keys in 20541026 and presses enter.  A giant smiley face appears on the screen, and then fades away to reveal Max's workspace. *The day we met* He chews on the inside of his lower lip while opening up Max's notebook.
+
+The entry for today:
+
+*Project Unicorn is my greatest success and my greatest failure. While developing it, I wasn't thinking about the real ramifications of what this meant. It was supposed to help keep people happy, help them understand they role they are playing within the organization, but I fear I've stepped over the line.*
+
+*I didn't think that they would use it to reprogram people's personality. The device is entirely too effective as swaying the test subjects, so much so that we've been able to convince them they are someone else entirely.*
+
+*Luckily, I stopped one experiment.  Jerome went a little too far with one of the test subjects.  Had I not stepped in, they might have ended up married.  Jerome is a little desperate at the moment, but that doesn't excuse his behavior.  I've asked to have him transferred off of the project.*
+
+*I do not know what I'm going to do.  My conscious is eating at me, and I can't talk to Dominic about it because of the security clearance for this project.  I wish they would just assign him to the project, so I wouldn't have to keep all of this from him.*
+
+He stops reading.  A vibration in his arm means that someone has tripped the proximity sensor.  He quickly locks the terminal, removes his gloves, and sits down, thumbing his holoprojector on, his news feed flashes into view as the door slides open.
