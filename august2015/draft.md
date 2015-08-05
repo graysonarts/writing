@@ -64,7 +64,18 @@ He touches the implant on his right wrist lighting up the time under his skin.  
 
 11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
 
-Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker loyalty" he begins.	
+Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker loyalty" he begins.
+
+# Ji
+Ji stands out on the balcony of the 54th floor of the Nakitashi Plaza building.  A nicostick dangles from her lips, her left hand pressed the wall, steading herself.  Her eyes are unfocused, a direct audio feed from Akio's meeting room sends pulses directly to her cochlear nerve, presenting a sound that is more real than real life, and cannot be eavesdropped on, except by electrical means.  If one inspected the device close enough, with an electron microscope, they would see "NewTek International Holdings" emblazoned on it.
+
+A long drag on the nicostick, and Ji's hands steady, her breathing lengthens.  She leans back against the wall, looking out onto Nakitashi City, the capitol of Nakitashi Corporate Land Holdings, LTD, the liability shelter setup after Akio Nakitashi purchased the failed New Cascadia, one of the last bastions of democracy, the last hold out against the UCSA and their power. 
+
+Nakitashi City is not very big, but the natural formation of hills separate the city into distinct zones.   The crumbling ruins of the old city stretch between Lake Akio and the Wide Fjord of Advancement, a large stretch of water being fed by the Pacific Ocean.
+
+The original denizens of the old city could not agree on the style of the city. The ruins are a hodgepodge of baroque facades with the amorphous shapes of the early 21st centuries concepts of modern, monstrosities of aluminum, glass, and unmatched colors.
+
+Ji's eyes fixate on the one penis shaped structure, a spindled spire, that abruptly ends in fractured edges, giving hint of incompleteness.  As a kid, she learned that it was once called a needle, but all she sees is a broken penis.
 
 # Vienne
 
@@ -322,13 +333,62 @@ The entry for today:
 
 He stops reading.  A vibration in his arm means that someone has tripped the proximity sensor.  He quickly locks the terminal, removes his gloves, and sits down, thumbing his holoprojector on, his news feed flashes into view as the door slides open.
 
+"Ji?"  Her silhouette partially blocks the light streaming in from the hallway.
+
+"Dominic? What are you doing here?"
+
+"I was going to ask you the same thing!"
+
+"Max asked me to stop into the lab.  He thinks he forgot his backpack."
+
+"And he gave you his access code for that?"
+
+"Yeah? He gave me the temporary guest one for the day."  Dominic narrows his eyes, her face still full of shadows, a stark contrast from the bright light of the hallway.   "What are you doing here?"
+
+"Oh. Um. I."  Dominic rubs the back of his neck. "I was going to surprise him with a midday… you know."  He brings his hand up to his mouth in an obscene gesture.  "We haven't really had much… alone… time lately."  He shrugs. "Need to fit it in where we can."
+
+Ji's face flushes with blood, shifting from one foot to another as she walks into the lab and palms the door closed.  "Right here in the lab?  Man, that's hot."  Dominic chuckles deep from within his belly.
+
+"Except he's not here."
+
+# Ji
+The door slides closed behind Dominic, and Ji is left in the darkness of the lab.  Her eyes search the corners of the room as she sighs, and plops down onto the green sofa, a color reminiscent of the pale green of baby food that's been left out too long.  On the white board behind it, in hurried, sprawling script "Thinking chair" with a swoop of an arrow pointing at the chair.
+
+A long, slow exhale trails out of her mouth as she shifts her weight, continuing to look around. *Fuck this is going to be boring waiting for him*  Her eyes dart left, and dart right, head lagging behind by a brief moment.  She leans forward, leans back, shifts her weight again.
+
+"Fuck this." she says aloud, and stands up, leaving the lab.  Down the hall, she strides, the stomp heavy feet rebounding off the walls. She pulls her wrist up to her face, and dances her fingers across the surface. *Now I'll get a notice every time Max swipes his access badge or uses his access codes*
+
+She slips off into a side corridor, approaching a door that is marked "Janitor".  She puts her eye up to the door, even with a smudge on the otherwise clean white door.  Light illuminates her eye, a bright magenta line burst across her eye, and a quiet chime, soft and random like a wind chime precedes the door sliding open on air tracks, smooth, efficient, silent.
+
+She slips in, and the door slides closed behind her, the shift of the air pressure the only noticeable marker.  The security office is expansive.  Endless rows of monitors line either side of the room, the vanishing point fades into darkness at the far end of the room.  The room is mostly empty.  A few terminals on the far end are manned, security interns, all young, hunch over the terminals, typing furiously, the clack of their keyboards create a soft cacophony in the room.  Claire sits at the first terminal inside of the room on the left side.  Her feet swing in counter balance with each other, and she is watching one of the feeds from the dorms.  Her loose curls of red hair bounce as her legs swing.  She notices Ji enter, and smiles.
+
+"Hi, Ji!"
+
+"Hello, Claire.  Whatcha watching?" She pulls up a chair and sits down next to Claire.
+
+"Dorm feed, it's pretty boring.  Saw you getting your morning coffee."
+
+"Did you see Dominic and his inability to wear clothes?"
+
+"I saw the blurry smudge that the software always renders for him not wearing clothes in the halls."
+
+"Such a shame."
+
+"Not really.  Women are better. In. Every. Way." She arches an eyebrow, giving a crooked smile.  A hearty chuckle erupts from Ji.
+
+"And don't you forget it."  Across all of the terminals in the security room, an alert pops up, accompanied by a slight vibration in Ji's wrist.  The alert reads "Maximilian Bosko has scanned his ID badge in Elevator #1-A-1."
+
+"Huh, I guess I made it a security broadcast, not just to my comm unit.  Can you clean that up for me Claire?  I need to run and catch Max before he gets sucked into his research again.
+
+Claire nods as Ji runs out the door.
+
 # Levi
 
-The whir of an ancient printer spins to life, spitting out sheets of dead trees with a black powder melted onto it using lasers.  The powder spells out words.  Levi likes ancient technology, the unconnected, bastions of the old world, the old nation, from the time before when the illusion of for the people by the people still existed. This ever present connected life is is a vile thing to him.
+The whir of an ancient printer spins to life, spitting out sheets of dead trees with a black powder melted onto it using lasers.  The powder spells out words.  Levi likes ancient technology, the unconnected, bastions of the old world, the old nation, from the time before when the illusion of for the people by the people still existed. This ever present connected life is a vile thing to him.
 
 Levi and his printer are housed in a small cabin in a no-man's land between his once beloved New Cascadia and the desert that stretches to the East.  The rough-hewn planks that line the walls bare the marks of a hand axe, sloppily applied, the random cuts show the frustration over time, a beautiful testament to why no one builds their own homes anymore.  The room is sparsely furnished, a small military cot sits in one corner and there is an old door sitting on top of some legs salvaged from a diner as a makeshift desk on which the printer sits along with a slender silver rectangle, hinged and open displaying a black screen with a single hash sign in white at the bottom.
 
-The paper is gliding out of the printer, cascading gracefully to the floor.  He snatches the last page out of the air.  *Another work order* He scans the page for the most important piece of information.  "$5b NewTek credits" is printed at the bottom of the page in large, heavy type.  Knees bending with heavy, echoing cracks, he bends to shuffle the rest of the pages off of the floor.
+The paper is gliding out of the printer, cascading gracefully to the floor.  He snatches the last page out of the air.  *Another work order* He scans the page for the most important piece of information.  "$5b UCSA credits" is printed at the bottom of the page in large, heavy type.  Knees bending with heavy, echoing cracks, he bends to shuffle the rest of the pages off of the floor.
 
 He nods slowly.  *Some bio-nerd at Nakitashi, capture or kill, double money for capture than kill.*  He reads over the intel about position, current habits. *This guy doesn't go anywhere other than work and the dorms.*  "Hmmmm" breaks the silence.
 
@@ -358,4 +418,69 @@ She walks over to a terminal and types in a couple of commands on the terminal. 
 
 "NewTek is going to extract you.  They say Project Unicorn is too powerful.  I'm supposed to distract Nic so he remains unharmed and unaware."
 
-Max collapses onto the floor, tears filling his eyes.  "I wish I had never had this fucking idea," he wails.
+Max collapses onto the floor, tears filling his eyes.  "I wish I had never had this fucking idea," he wails.  Ji meanders over to him, her motions tentative, searching.  She places her hand on his shoulder, squatting down to his level.  She raps him quickly across the face.
+
+"Pull your shit together, we need to get you into protective custody.  Now!" she manhandles him, pulling him to his feet, her strength belying her size.  A gun has appeared from the aether, and she is pushing him out the door.
+
+Max snaps out of his fugue state, wrenching his arm out of her grasp.
+
+"No!" a force of will he is not used to mustering.  "Where is Nic?  We can't let him get caught in the cross fire."
+
+"Goddamn it, we don't have time for this shit."  Everything goes black as the crackle of a stunpatch echoes down the hallway.
+
+# Vienne
+
+Vienne paces her office.  The holoprojector of Ji's bust hovers above the center table. The painting of an abstract scene of a worker rebellion seeps through the imperfect project, colors infusing Ji's figure with certain gayety, a juxtaposition not lost on Vienne.
+
+"What do you mean Maximilian has disappeared?"
+
+"That's what Dominic told me, he's quite worried. I don't think he's even showered in a few days."
+
+"One moment."  She quickly disengages the holoprojector, and picks up a small receiver from her desk, pressing in the sequence "53409871049103###".  A squelching sound reverberates around her office, then static, then a voice.
+
+"Operator Seven" a deep male voice intones.
+
+"Seven Eight Nine, Tango, Xylophone, Alpha."
+
+"Target has not been acquired.  Recon still happening."
+
+She puts the device down, clicking the power button off, then reengages the holoprojector.
+
+"… I can't, I can't get no, I can't get no …" Off-key and arrhythmically.
+
+"Ji!"  And her holographic form starts, coming to attention. "Our extraction agent has not taken him.  You must find out what happened.  Report back once you know more."  The holographic display clicks off with a press of a button.
+
+"Shit. Shit. Shit."  Her fingers glide over the console, and after a few seconds, Dominic's face appears on the projector.  "Status report time, Nic."
+
+"I thought the extract wasn't scheduled for a few days.  I didn't have time to get the research, and now that Max is gone, I don't know what i'm supposed to do about the research."  His eyes are bloodshot, his hair a scattered mess of red and black strands.
+
+"Calm down, Dominic.  We have not taken him."
+
+"What?" his eyes go wild. "Where is he then? Who took him? Is there another agency that knew about the project and beat us to the jump?"
+
+"Highly unlikely.  Dominic, this project was handed down to us."  A brief pause as her fingers fly across the console keyboard.  The holograph blips out and then back in.
+
+A disembodied voice, British, Female, the artificial intelligence's idea of a trust worth, learned voice, "Encryption Protocol Engaged. All further communication is deemed top secret, priority one.  Do not disclose under penalty of death."
+
+"This mission is coming from the Governess of the UCSA directly. No other agency is privy, unless she has lost faith in our ability to deliver, but she would have notified me."
+
+"What if it's unsanctioned?"
+
+"Impossible.  No corporation would be that suicidal." doubt begins to creep into her brain, but she brushes it away.
+
+"What about–"
+
+"–Those are folklore, Dominic.  We, " emphasis, " are the black ops."
+
+"Right…"
+
+"Dominic, just relax. I have at least one agent on this. Your current action items are to remain calm, downplay his disappearance, convince people that he is just on a vacation.  Dead aunt, maybe?"
+
+Dominic rubs his eyes with the heel of his hands, running his hands through his hair.  "Okay.  I'll try."
+
+"There is an ancient proverb, 'Do or do not, there is no try.' Just remember that."
+
+He nods his head, and the screen blips off.
+
+# Levi
+
