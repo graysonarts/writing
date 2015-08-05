@@ -77,6 +77,38 @@ The original denizens of the old city could not agree on the style of the city. 
 
 Ji's eyes fixate on the one penis shaped structure, a spindled spire, that abruptly ends in fractured edges, giving hint of incompleteness.  As a kid, she learned that it was once called a needle, but all she sees is a broken penis.
 
+#  Dominic
+Dominic pounces on Max as soon as the door slides open, arms around Max's waist, tight, pulling.  "I heard that your project was greenlit!"  He kisses Max, a deep passionate kiss.  Max drops the bag he was holding.
+
+Max pulls back, disengaging, breathing a deep solid breath. "How did you hear?  It's supposed to be top secret."  His eyes narrow, gazing with intensity.
+
+"Oh, I overheard someone saying that you were a lucky sonofabitch, saying you probably fucked Mr Nashitaki to get the green light.  The normal office bullshit."
+
+"Jealous, bitter hags."
+
+"Let's celebrate!" He pulls Max into him harder, pulling him over to the bed.  They fall backwards, the sofa foam of the bed catching their weight with effortless ease.
+
+"Oh? Is this what you want?" Max says has he unbuttons Dominic's pants.
+
+…
+
+Two naked bodies intertwined, sweat glistens off of their chests as deep breathing begins to slow, a lurid mixture of sweat and sex permeates the air.  With a heavy sigh, Dominic pulls himself free, become separate entities again.  He stands up, and walks to the bathroom, Max reaches out in vain to stop him. "Come back here."
+
+"I'm going shower, need to wash all of this off of me" he jesters to his chest and neck.
+
+Max sits up in bed, crossing his arms and pouting as Dominic continues to the bathroom.  He flicks the shower to hot, then cold, trying to find the perfect temperature.  The water rushes over him, warming his body against the cold morning air.  Lather, rise, repeat, his hands glide over his body, covering every crevice, scouring away the remnants of their passion.
+
+He becomes lost in himself as the water ebbs and flows over his back, ears filling and emptying as water winds its way down his body.  
+
+"Hey, there is a new club opening up, pansexual, each floor has a different theme.  Let's go tonight?"  Max calls from outside the bathroom door, the sound muffled by the water in Dominic's ears.
+
+"Sure, sounds fun." Dominic shuts off the water valve, and steps out of the shower, water dripping and pooling on the floor.  He palms the door open, Max's eyes travel the length of his body, lingering on his crotch.
+
+"Up for round two?"
+
+…
+[KK Club scene]
+
 # Vienne
 
 NewTek International Holdings is an umbrella corporation primarily responsible for stealing most of the technological advancements in the last 50 years.  Vienne is a handler for NewTek International Holdings. Her primary responsibility is being the contact person for a small group of spies that NewTek International Holdings employs.  These spies are in deep cover, sometimes years at a time, infiltrating neighboring corporate states, and relaying information back to NewTek so they can beat people to market with new technologies.
