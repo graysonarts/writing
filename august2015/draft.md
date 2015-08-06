@@ -107,7 +107,32 @@ He becomes lost in himself as the water ebbs and flows over his back, ears filli
 "Up for round two?"
 
 …
-[KK Club scene]
+
+The exterior of Club Elysium has a mirror finish and no exterior lighting except the sign.  An orgy of colors swirl and dance above the building and over the street surrounding Elysium.  The reflections bath Dominic and Max is a multitude of hues.  The door is imperceptible, a thin etched line in the otherwise continuous mirrored facade.  As they approach the door, the light from the sign coalesces into concentrated beams  of magenta, either pupils scanned.
+
+Club Elysium is another part of the wide, suffocating embrace of the Nakitashi Corporation.  Their employee IDs are whisked away, through optical fibers to the central data processing hub.  A log entry in their personal file is created, timestamped, with accompanying pictures, taken from a hidden camera behind the mirrors of the club.
+
+The door slides open, and the bass washes over them, an aural tidal wave, assaulting their vestibular system, inducing a euphoric, light-headed feeling.  The walk on into a panoramic view of the inside of the club.  It's an open air atrium with a five story ramp circumscribing the perimeter of the atrium.
+
+The DJ station floats on tensioned aircraft steel in the center of the atrium, and a pair of robots sit at turntables, mixing the music using algorithms that moderate the energy levels of the crowd, remotely monitoring their biosigns, adjusting and manipulating to keep the crowd engage and amused.
+
+"Want to get a drink?" Max screams into Dominic's ear, trying to overcome the music.  They walk over to a drink console.  Dominic selects gin and tonic, and Max selects scotch, neat.  Their drinks are dispensed by unseen pumps and mechanical arms.  They appear on the outstretched tray moments later.
+
+Performers dangle everywhere around the DJ station, contorting and manipulating their bodies around pieces of steel, rope, and fabric. Their naked bodies dripping sweat into the crowd as their fling themselves around, upside down, and drop.
+
+Dominic leans over to Max, mouth to his ear, pointing at one of the performers, "I bet he gets wicked rope burns on his ass."  They both laugh.
+
+"But he has a pretty fantastic ass."  Dominic nods his head.  "I wonder what time he is done performing?"
+
+"Why?"  heads swinging back and forth so they can hear each other.
+
+"He'd be fun in bed.  Look how bendy he is."
+
+"What?"
+
+"I said, he'd be fun in bed!"
+
+"Oh."  Dominic looks down at the ground, shifting his weight from one foot to the other, taking a sip of his drink.  A brief respite in the intensity of the music, slowing, softening, but the pianissimo is but a brief moment in time before the full brunt of the bass line pounds into them.
 
 # Vienne
 
