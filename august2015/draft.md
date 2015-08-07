@@ -118,7 +118,7 @@ The DJ station floats on tensioned aircraft steel in the center of the atrium, a
 
 "Want to get a drink?" Max screams into Dominic's ear, trying to overcome the music.  They walk over to a drink console.  Dominic selects gin and tonic, and Max selects scotch, neat.  Their drinks are dispensed by unseen pumps and mechanical arms.  They appear on the outstretched tray moments later.
 
-Performers dangle everywhere around the DJ station, contorting and manipulating their bodies around pieces of steel, rope, and fabric. Their naked bodies dripping sweat into the crowd as their fling themselves around, upside down, and drop.
+Performers dangle everywhere around the DJ station, contorting and manipulating their bodies around pieces of steel, rope, and fabric. Their naked bodies dripping sweat into the crowd as they fling themselves around, upside down, and drop.
 
 Dominic leans over to Max, mouth to his ear, pointing at one of the performers, "I bet he gets wicked rope burns on his ass."  They both laugh.
 
@@ -447,11 +447,39 @@ Levi and his printer are housed in a small cabin in a no-man's land between his 
 
 The paper is gliding out of the printer, cascading gracefully to the floor.  He snatches the last page out of the air.  *Another work order* He scans the page for the most important piece of information.  "$5b UCSA credits" is printed at the bottom of the page in large, heavy type.  Knees bending with heavy, echoing cracks, he bends to shuffle the rest of the pages off of the floor.
 
-He nods slowly.  *Some bio-nerd at Nakitashi, capture or kill, double money for capture than kill.*  He reads over the intel about position, current habits. *This guy doesn't go anywhere other than work and the dorms.*  "Hmmmm" breaks the silence.
+He nods slowly.  *Some bio-nerd at Nakitashi, capture or kill, double money for capture than kill.*  He reads over the intel about position, current habits. *This guy doesn't go anywhere other than work and the dorms.*  "Hmmmm" breaks the silence.  "Elysium."
+
+# Dominic
+
+Elysium is in full swing when Dominic arrives, quickly slipping through the security, he is a seasoned pro now, the dance, the ritual plays out silently, magenta caressing his retinas.
+
+Max is there, standing at the bar, hand gently around the bronzed hip of the aerialist, standing dangerously close together, naked flesh pressed against Max's clothes.  Dominic swallows hard, hand trembling, and begins to walk in their direction.  His eyes locked on Max.  *Why am I bothered by this?  Max is just a mark.*  His heart pounds louder than the music, his breathing ragged.
+
+Max's eyes train onto Dominic, his hand retracts, and blood rushes to his face.  
+
+"Nic? What are you doing here?"
+
+"Me?"
+
+"Felix was just explaining his training regime.  He said anyone can learn how, and he'd be willing to teach me."
+
+"Yes" his voice thick with a Barcelonian accent, "it's quite easy, once you have the strength."  Pointing his long manicured fingers at Dominic, "You look like you have the strength already."
+
+Dominic cocks an eyebrow, tilting his head.  Felix is covered in microlights pulsing to the beat of the music.  Dominic is having trouble looking at him.  "I would think endurance would be required more than strength?"
+
+"I do have plenty of endurance too" Felix inches closer to Dominic, closing the triangle. "I usually go all night."
+
+Dominic narrows his eyes and looks over at Max and then returns to Felix and a smile spreads across his face.
+
+An older man, built like a tank, pushes his way passed Max, knocking him into Felix, who catches him with deft hands.  All eyes are on the man, muscles tight, bulging out of his shirt. He smell coming off of the him wrinkles all of their noses.  "Out of my way, I need a drink," he barks at them.
+
+All three retreat, Max rubbing his arm, a little dab of blood smears onto his fingers. "The fucker cut me or something."
+
+"How about we go back to your place and get that cleaned up?"  Felix takes their hands, and leads them out of the club.
 
 # Max
 
-Max keys in the code to his lab.  His disheveled hair wiggles at the air pressure difference as the lab door swings open.  His steps are slow and shuffling, his head hangs low.  Today has been a rough day.  Not looking up, he palms the door closed. "Lights, 50% please" his voice ragged with exhaustion.
+Max keys in the code to his lab.  His disheveled hair wiggles at the air pressure difference as the lab door swings open.  His steps are slow and shuffling, his head hangs low.  Last night was wild, but this morning is rough.  His head pounds.  Not looking up, he palms the door closed. "Lights, 25% please" his voice ragged with exhaustion.
 
 He jumps at the sound, "Hi Max."  Looking up, his eyes lock on Ji's short cropped hair, and then her eyes. 
 
@@ -541,3 +569,88 @@ He nods his head, and the screen blips off.
 
 # Levi
 
+There are times when Levi will admit new technology is worth a damn. This is one of those times.  A small red dot hovers above a paper map laid out on the large wooden table in his embassy suite, much too posh for the likes of him, paid for by NewTek International Holdings.  High power clients come with perks.
+
+His muddy boots are propped up on the artisan surface of the table, smearing what smells like shit onto the edge of the table.  He remains placid, intently watching the dot.  It is moving rapidly. *must be in a car, where is he going?*
+
+The red dot is a projection from the holoprojector.  A geotrack™ receiver is communication with airborne drones that hover the city, relaying signals in a mesh.  The drones are part of a Nakitashi-led research project to develop self-healing packet relay networks that are unbound by the earth.  They indiscriminately transfer packets between them, routing seamlessly from source to destination through a trillion microdecisions.  The employees call it "the brain of Nakitashi-san".  There is more than a little hint of ridicule in the name, but it serves its purpose.
+
+And in Levi's case, it's routing the positioning signal from the geotrack™ embedded device he injected into his extraction target.  He is glad that he suffered through Elysian to get this device into his target.  The target had gone dark for a full day, did not return home, did not go to work, did not visit his fuck-buddy in Elysian.  No trace by conventional means.
+
+The holoprojector pops up a small floating box with "Incoming…" written in it.  "Encryption enabled, please state response to challenge A5DE02F" appears, letter by letter.
+
+Slow and methodical fingers tap in the response code "æbleskiver kiesershmarrn crêpe pancake".  It takes him three minutes to type it in.  Vienne appears on the screen.
+
+"About fucking time, old man."
+
+"How can I help you, Ms. Baune?"
+
+"What's the status of the extraction?"
+
+"The target went dark yesterday.  I have activated the tracking device I implanted in him.  Tracking his movement now, and he appears to be in a car."
+
+"I have reason to believe that Nakitashi is aware of the eminent extraction."
+
+"My price triples."
+
+"What?"  the word cuts through the air like a garrote.
+
+"Hazard pay. It's in the contract.  Extract requires breaching security even further than originally planned.  Target has settled, according to the city blueprints, he is being held at Nakitashi Maximum Security Prison."
+
+"So get yourself arrested."
+
+"Negative. Too high profile.  Get me as a guard. You have those connections, I'm just muscle."
+
+"One moment, Mr. Kane."  A third voice on the line, unfamiliar, ambiguously a woman's voice, most likely some AI.  NewTek holds the patents on some pretty impressive AI right now.  A small box pops up, a series of skeuomorphic folders appear in the holoprojector.  "Your new identity.  Please use transfer protocol alpha to install into implant,"  the AI voice chimes.
+
+"Extract will be done before the end of the day."
+
+# Ji
+
+*fuck fuck fuck* Two guards in crisp black uniforms, with short, cylindrical caps, and the Nakitashi Security Force logo, a stylized shield with a snake on it, in black ink, on their breast pockets.  Between them, they carry a gurney, Max sprawled out, arms dangling, legs slightly akimbo.
+
+They carry him into an isolation cell, Ji following closely behind, watching the medical read out.  Max's pulse is weak but stable.  The guards assist in moving Max onto the isolation cell's closed-cell foam block that serves as a bed.  Max's weight sinks into the foam, supporting him effortlessly.
+
+All three exit the cell and Ji presses her wrist to the control panel.  A small vibration sends a pleasant shockwave down her arm, and the door slides closed with a hiss, sealing in place.
+
+The guards take up a position on either side of the room.  "No one is allowed to interact with his prisoner.  Understood?  His identity, crime, and term of incarceration are clearance level zero."
+
+In unison, "Yes, sir!"  One of the guards looks at the other guard, "um, I mean, ma'am."
+
+Ji shakes her head, and walks towards the exit.  She turns back in time to see the guard hit the other one lightly on the shoulder and whisper to themselves.
+
+*fuck fuck fuck*  She enters the main security office of the prison.  The three guards who are sitting at monitors jump to their feet and salute.  She waves them to sit down.  "I'm not military."
+
+"But you are corporate security, so you out rank us." A fresh-faced guard speaks up, the scraggly ends of platinum blond hair shoot out from under his cap.  He has a round baby face, with cheeks Ji wants to pinch. 
+
+"What's your name?"
+
+"Cadet Johnson, ma'am!"
+
+"Everyone is sir here, cadet."
+
+"Sorry, sir."
+
+"How long have you been working here?"
+
+"Two months, sir."
+
+She exhales sharply. "Give it time."
+
+# Dominic
+
+He holds a monofilament wire in his hand.  An adjustable loop droops down to the floor, the weight barely registering on the wire as it flutters in the wind.  The roof of the dorm is 115 stories up, and the wind is fierce, but he has no choice.  Max is gone, and something must be done to find him.
+
+He steps close to the edge, the wind to his back, urging him closer and closer to the ledge.  One false step, and he will plummet to his death.  His target, one of the pieces of the brain hovering ten feet away, suspended in the sky by a series of whirling blades.
+
+He takes a second piece of monofilament from the ground.  It's been anchored to a pipe that extends from the rooftop.  He ties it around his waist, ensuring there is no slack in the line.  He steadies his feet, bending his knees.  *Ten feet, You can do this*  He tosses the loop into the air, the wind catching it, pulling it further out from the building, but the eddy currents from the propellers divert it off course and away from the drone.
+
+He breaths in deeply and slowly lets it out.  He pulls in monofilament, readying himself again.  This toss is too high, the loop catching the wind and overshooting the drone.  It begins the fall, fifteen feet out, as it reaches the level of the drone, the wind shifts slightly, blowing the filament right into one of the propellers.  The drone is coming in fast, winding the filament onto the rotor.  Dominic ducks out of the way, but one of the propellers catch him in the arm, opening a small gash on his deltoid, pain searing him as the drone falls to the ground.
+
+It thrashes on the ground for a few seconds before the onboard computer registers that it has crash, and shuts off power to the motors.  He quickly reaches down, and pulls the battery before the distress signal can engage.  *Now it will just register as a power failure*
+
+He steps away from the ledge, heading towards the service hatch.
+
+…
+
+[KK scene with hacking drone to find any trace of max]
