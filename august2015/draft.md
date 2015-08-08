@@ -701,4 +701,96 @@ He pulls the bike to a stop parallel to the building in the small amount of shad
 
 A second door sits just within the first, enough room for two people to stand.  The outer door slides shut.  A voice echoes in the little room.
 
-"Identify"  He voice robotic with a hint of a British accent.
+"Identify,"  the voice robotic with a hint of a British accent.
+
+"Private Aiden Maksimov, reporting for transfer."
+
+A brief pause and the door slides open.  A man with a face like a relief map, scored deep with age and weather stands on the other side of the door.
+
+"A bit old for a private, arentcha?"
+
+"Transferred from another company, must start at the bottom rungs, Sir."
+
+"What was your previous rank?"
+
+"General."
+
+"Don't think you will be running the show around here, private."
+
+"I understand the order of things, Sir.  Rank is Rank."
+
+"Indeed.  At ease, private."
+
+Levi spreads his legs slightly, arms behind his back.  *This is going to be a long con to get this kid out of here.*
+
+"What company did you say you are coming from?"
+
+"I didn't, Sir, explicit instructions to not discuss it from the extraction team, Sir."
+
+"Come now, private, your commanding officer supersedes all other orders."
+
+"No, Sir, NDA requires me, under microinjection implant, to not discuss this."
+
+"Very well, private.  Follow me."
+
+Levi is led around, given the grand tour, at the end of the tour is the large steel door leading to the isolation cells.  The yellow stenciled letters spell out "High Security Clearance Personnel Only."
+
+"These are the isolation cells.  Reserved for the worst offenders and protective custody.  You don't have clearance to enter there, so our tour will end now.  Head back to the security center, talk to the PIC up there, and they will give you an assignment."
+
+"Yes, Sir," Levi snaps, a quick salute, and he falls back down the corridor.  *This'll take me a few days.*
+
+# Max
+
+A signal from the central processing center signals the stunpatch to release its hold on Max.  Within a few minutes, his eyes flutter open.  He is inside of a cube.  The walls are smooth slate gray, with no discernible cracks in them to hint at a door.  A small ventilation grate is dead center in the roof, three meters from each wall.  He is laying on a foam mattress in one of the corners.
+
+He cannot move his body.  The stunpatch releases the mind first, then the body slowly as the electrical restraint releases its hold on the nervous system.   The time ticks by, eyes focused on the grate in the ceiling.  An eternity passes with the grate as his only companion, the sound of air trickling in from the grate the only song his ears know.
+
+His fingers twitch, and then his arm moves.  He pushes himself up.  The cube is gray on gray. The mattress is gray, the cold aluminum of the toilet and sink along the wall his head now rests is gray.  The absence of color is nothing new with Nakitashi.
+
+He needs to urinate.  He tries to move his legs, but they are still in the confines of the stunpatch.  His hands search, trying to find the bastardly little device that Ji slapped on him.  He finds it on the back of his leg, behind his knee, and yanks it off.  His legs suddenly work.
+
+Standing up, legs trembling beneath him, he makes his way to the toilet, unbuttons, and let's loose a torrent of urine into the toilet.  A sigh escapes his lips, and he's done.
+
+He looks around at his confinement.  *If the toilet is facing this way* he turns around the commode. *Then this is the portal*  He presses his face near the wall opposite the toilet, peering into the gray.
+
+"I know you are out there."  He knocks on the wall.  The gray shimmers slightly when he touches it.  "I demand to see Ji Go."  The wall sparks slightly, knocking him back to the ground.  He slaps the cold gray stone. "Fuck!"
+
+# Dominic
+
+The flash of red and blue lights pound into Dominic's eyes rousing him from his unconscious state.  With his eyes now open, he can tell there are three varying patterns, interweaving their own blue and red lights.
+
+His hands are roughly pinioned behind his back, a small strip of steel plastic encircle his wrists.  He can hear the hoarse voice of a woman speaking. "Dominic Quill, midlevel engineer, cohabitating with Maximilian Bosko for the last four years." A radio voice, indiscernibly words buzzing out of the radio. "CPC says the car denied taking him to the prison. Found autodrive system ripped out. We assume he was attempting to self-drive to the prison." More buzzing from the radio. "He is not licenses for vehicle control."
+
+A second voice with youthful exuberance pipes up. "Ma'am, he's awake."
+
+"Dispatch, please hold."
+
+The woman appears in front of Dominic, at the end of the squad car where he is slung.  She is middle aged with laugh lines heavily creasing the sides of her face.  Her stringy brown hair spills out of her patrol cap as she takes it off and squats down to get to his level.  Her knees pop loudly as she sinks down.
+
+"What were you thinking?"
+
+"My boyfriend was taken to prison, I was trying to go find out what happened to him."
+
+"Why didn't you go through proper channels.  There are procedures.  You know this.  Your record shows that you helped implement the current system."
+
+Tears stream down from Dominic's eyes.
+
+"I'm just so worried about him."
+
+The radio buzzes.  The young officer comes over and whispers something into the woman's ear.  Dominic gets a good look at him.  Blond, Fit, bright shining blue eyes, but he looks distinctly Japanese, a contrast to his aryan coloring.   His nameplate labels him "Jones".
+
+The woman's face turns stone cold. "How did you break the security clearance surrounding Max's arrest?  You do not have the clearance."
+
+"I was worried about him."  She strikes him hard against the face.
+
+"How did you know he was arrested?"
+
+"I have friends."  She strikes him again.
+
+"How did you find out he was arrested?"  her voice demanding, carrying a lethal edge of warning.
+
+"I hacked the drone network, bitch, stunpatch packets, pretty easy given the lack of drones out by the prison."  She delivers a heavy blow to his face, closed fist this time.  She picks him up off the back of the squad car, roughly tossing him into the back, and closes the door.
+
+She gets into the passenger seat, and Officer Jones gets into what used to be the driver seat.  
+
+"Well, Mr. Quill, your desire to see the inside of the prison just might be granted today.  Central Processing," she barks to the autodrive system and the car lurches forward.
