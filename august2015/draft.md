@@ -77,7 +77,7 @@ The original denizens of the old city could not agree on the style of the city. 
 
 Ji's eyes fixate on the one penis shaped structure, a spindled spire, that abruptly ends in fractured edges, giving hint of incompleteness.  As a kid, she learned that it was once called a needle, but all she sees is a broken penis.
 
-#  Dominic
+# Dominic
 Dominic pounces on Max as soon as the door slides open, arms around Max's waist, tight, pulling.  "I heard that your project was greenlit!"  He kisses Max, a deep passionate kiss.  Max drops the bag he was holding.
 
 Max pulls back, disengaging, breathing a deep solid breath. "How did you hear?  It's supposed to be top secret."  His eyes narrow, gazing with intensity.
@@ -653,4 +653,52 @@ He steps away from the ledge, heading towards the service hatch.
 
 …
 
-[KK scene with hacking drone to find any trace of max]
+The drone is splayed out in pieces on the bed, Dominic hovering over it, a murderer carefully laying out pieces of his victim for purposes unknown.
+
+Dominic pulls the drone service manual from the edge of the bed.  His brow furrows, as his finger traces a line across the page.  A pair of wire cutters in his hand.  He snips a red wire.
+
+"Okay, I think this does it."  He picks up the largest circuit board, clips two alligator clips to it.  He walks over to the wall near the holoprojector.  One of the smooth panels has been removed, exposing the circuitry underneath.  He peers in.  "Ah," and he clips the alligator clips to unseen points in the wall.
+
+The holoprojector blips on, a random, glitching pattern swelling into the room.  He rushes over to the console, his hands fly over the keyboard with grace and determination.  The mass of the projection amalgamates into discrete blips, a field of stars.  Each star is labeled with a frequency band, geodex location within the city, and the current rate of data flow.
+
+A few more minutes, and lines begin to slide across between nodes, short lengths of line, packets within the network, the speed picks up and soon it's running at full speed, a blur of data running through the system.
+
+Soon, the colors of the lines begin to shift.  A search protocol for any mention of Max's id runs through the system.  A green line floats up out of the mire of the traffic, thin and faint.  Dominic stares at it, types a few things on the keyboard, and the line expands into a breakdown of the packet.
+
+```
+[ stunpatch v1.5.2;
+  bpm:63;
+  bp: 110/62; # warning out of nominal rage
+  temperature: 98;
+  brain-activity: low; ]
+```
+
+"He has a stunpatch on him!"  With a knitted brow, he begins to work out the origin drone.  The projection zooms in to a single drone.  "He's in the prison?"
+
+He rushes out of the door, sliding into the wall as he shifts direction, heading down the hallway.  A slight heaving of his chest as he reaches Ji's door.  He bangs on it, and waits.  *Right, she'll be at work still*
+
+He sprints back down the hallway to the elevator and presses the button once.  And then again.  And then again. This pattern repeats until the elevator doors open, and he walks in.  On the way down, he punches in a request for a car.
+
+The car is waiting when he exists the building, he squints against the harsh light of the sun, and slides into the car.  "To Nakitashi Maximum Security Prison."
+
+The voice of the car is deep, reverberating, and final. "You are not authorized for that location."  He slides over the top of the seat into the front seat, and pulls the autodrive system out.  Grasping the wheel, he flicks the car into gear, and pushes the throttle forward.  The car lurches forward, picking up speed, pressing him hard into the seat.
+
+Signals fly back and forth between the Nakitashi central processing and the car.  The anomaly of the autodrive system suddenly disconnecting raises a flag. The subsequent acceleration, relayed by sensors on the car, causes the AI to decide that the vehicle has been stolen.  The Nakitashi police force is dispatched with the location of the vehicle, and the remote kill switch authorization code is transmitted over the drone network to the car.
+
+The car slams to a stop, Dominic's head bashing into the steering wheel, and he is knocked unconscious.
+
+# Levi
+
+The roar of his motorcycle echoes off of the valley of buildings, tearing down the street, he weaves in and out between the slow, self-driving cars.  Like everything, this bike is an antique, but in perfect repair.  Back in the '10s, the Magpul Ronin was a fabled bike, pushing the design of the motorcycle forward, a concept piece that went into production in the last '10s.  Only a small handful were made, but they were solid bikes.  He spent a year faithfully restoring this bike.  He loves it more than he loves his daughter.
+
+Nakitashi has the autodrive systems set to slower than average speeds. He pontificated that the slow speeds are to induce a sense of tranquility into the city, a sense of not needing to rush around and be busy.  Akio Nakitashi is full of shit.
+
+But Levi uses the slow speeds and ample spacing to zip through the streets.  The prison is an underground facility on the outskirts of Nakitashi City, stretching miles under the desert borderlands of the city.  He pulls up to a low, squat building, a polished black exterior, absorbing the light like it absorbs the criminal element of the city.
+
+Like most prisons in the UCSA, criminal is decided by the corporation.  Anyone who works against the corporate interests of the respective corporations are subject to imprisonment for indefinite amounts of time.  The only regulation the UCSA imposes on the prison system is about the use of torture.  Physical torture is never allowed.
+
+He pulls the bike to a stop parallel to the building in the small amount of shade the building provides.  Whipping his leg over the motorcycle, he walks over to the door, and swipes his wrist against the security sensor.  A series of beeps, the whir of unseen electric motors, and the door slides open.  The pressure differential blows through his short black hair, and he walks in.
+
+A second door sits just within the first, enough room for two people to stand.  The outer door slides shut.  A voice echoes in the little room.
+
+"Identify"  He voice robotic with a hint of a British accent.
