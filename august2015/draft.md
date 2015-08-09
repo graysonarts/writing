@@ -50,7 +50,7 @@ Muscles twitch, a quick response, a part of his ritual, perpetually late for wor
 
 At this time of the day, most people are already at work, so the showers are empty.  Max quickly covers himself in the industrial, multipurpose gel that Nakitashi provides as the most efficient, lowest environmentally impactful cleaning product possible.  The shower fills with a mixture of sulfur and lavender.  This stuff always gives Max a headache for at least an hour.  Another rough morning for the rising star of the biomech division of Nakitashi Corp.
 
-Two minutes are entering the shower, he's toweling himself off as he shuffles his way back to his apartment.  Stepping through the door, Alexis chimes in, "You have received a message from Akio, shall I read it to you?"
+Two minutes are entering the shower, he's toweling himself off as he shuffles his way back to his apartment.  Stepping through the door, Alexis chimes in, "You have received a message from Akio Nakitashi, shall I read it to you?"
 
 Wincing at the name, "yes."  The purple ring pulses languidly as the processor generates the words for Alexis to speak.
 
@@ -62,7 +62,7 @@ He touches the implant on his right wrist lighting up the time under his skin.  
 
 …
 
-11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
+11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio Nakitashi stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
 
 Sweat drips down into Max's eyes, his finger trembling as he keys his access code into the conference room table.  A holoprojector turns on from above the table.  A deep breath slowly trails out of his mouth, a shuttering release of air.  "Perfect worker loyalty" he begins.
 
@@ -86,7 +86,7 @@ Max pulls back, disengaging, breathing a deep solid breath. "How did you hear?  
 
 "Jealous, bitter hags."
 
-"Let's celebrate!" He pulls Max into him harder, pulling him over to the bed.  They fall backwards, the sofa foam of the bed catching their weight with effortless ease.
+"Let's celebrate!" He pulls Max into him harder, pulling him over to the bed.  They fall backwards, the soft foam of the bed catching their weight with effortless ease.
 
 "Oh? Is this what you want?" Max says has he unbuttons Dominic's pants.
 
@@ -96,7 +96,7 @@ Two naked bodies intertwined, sweat glistens off of their chests as deep breathi
 
 "I'm going shower, need to wash all of this off of me" he jesters to his chest and neck.
 
-Max sits up in bed, crossing his arms and pouting as Dominic continues to the bathroom.  He flicks the shower to hot, then cold, trying to find the perfect temperature.  The water rushes over him, warming his body against the cold morning air.  Lather, rise, repeat, his hands glide over his body, covering every crevice, scouring away the remnants of their passion.
+Max sits up in bed, crossing his arms and pouting as Dominic continues to the bathroom.  He flicks the shower to hot, then cold, trying to find the perfect temperature.  The water rushes over him, warming his body against the cold evening air.  Lather, rise, repeat, his hands glide over his body, covering every crevice, scouring away the remnants of their passion.
 
 He becomes lost in himself as the water ebbs and flows over his back, ears filling and emptying as water winds its way down his body.  
 
@@ -605,6 +605,84 @@ Slow and methodical fingers tap in the response code "æbleskiver kiesershmarrn
 
 "Extract will be done before the end of the day."
 
+# Vienne
+
+"Nic, you look awful."  The visage of Dominic on the screen is a haggard mess of an unshaven jaw, deep lines etching under his eyes.  He vibrates from an unseen leg, shaking, as he sucks in on a nicostick.  "You don't smoke."
+
+"Now's just as good of a time as any.  What do you want?"
+
+"Nic, are you losing it?  Do we need to have an intervention."
+
+"My subject is gone.  This has never happened to me."
+
+"Maybe it's for the better.  I'm going to recommend that we pull you okay."
+
+"No!" his eyes go wild in the holoprojector, a flash of calm morphs his face into a placid mask.  "I've got this.  I have a plan.  I will reacquire Max if he's in the city still."
+
+"And what if he's gone?  What if something spooked him and he fled?"
+
+"He wouldn't do that without me.  We would be going together.  He loves me.  Not that you would understand."
+
+"Nic, this isn't the time."
+
+"Fuck you, Vienne, you don't know anything about love."
+
+"Have you been turned?  Are you in love with him now?"
+
+"Five years, you frigid bitch."
+
+"Answer the question, you fucking man-child!" she snaps at him.
+
+"No! Yes? Fuck I don't know anymore."
+
+"The leaders were afraid this might happen.  Five years is too long, but we had faith in you.  Did you destroy the plans and all the data?"
+
+He shakes his head erratically.
+
+"Is that a yes?"
+
+"Affirmative.  You want a robot, right?  Affirmative Human Female. The plans have been destroyed per your goddamn, fucking orders."
+
+"And no other copies exist?"
+
+He holds up a small cylinder with a glowing red socket on it.  "All except this one."
+
+"And you will deliver it at the dead drop tomorrow night?"
+
+"This one?  Not quite yet."
+
+"Dominic Quinn! This is not a game.  If you don't deliver that drive to the drop point…"
+
+"What?  What will happen?  Remote termination?  You don't think I know your tricks?  I disabled that on day one, dug it out of my arm with a fucking pen knife."
+
+"Nic, sweetheart, you are putting me in a real bind here."
+
+"Good."  And Dominic's projection disappears.
+
+"Motherfucker!" A glass vase smashes into the safety glass of the windows, bouncing off and cascading into a million pieces on the floor, the single daisy splaying out across the ground, the delicate circuits of the artificial flower snap and spark as it hits the ground, cracking.
+
+Simon appears in the doorway.  "Ms. Baune?  The leaders are requesting your presence in the board room.  They were monitoring that exchange.
+
+…
+
+Vienne returns to her office, head hanging low, feet shuffling forward.  Her weight heavy as she falls back into her chair.  "Simon!"
+
+Simon appears in the doorway again.  "Termination Order.  Dominic Quinn.  Go through the list of agents, pick the one with the worst track record."
+
+"Madame?"
+
+"Worst track record.  He deserves that much. A little fighting chance."
+
+"Are you going to warn him?"
+
+"They didn't order me not to, and take your time, no rush.  And bring me a gin and tonic, please."
+
+"Yes, Madame."  He leaves her alone to her thoughts.  *Damn it, Nic. You forced their hand.  Going rogue*  She slumps forward, forehead hitting the desk.  "I hope you know what you are doing, Nic."
+
+She types in a secure message, encrypting with her personal key, hoping Dominic still has it.  "Term Ord Eff Imdy Sry <3".
+
+She raises her head from the desk.  A glass of gin and tonic sits on the corner.  *Such a silent kid*
+
 # Ji
 
 *fuck fuck fuck* Two guards in crisp black uniforms, with short, cylindrical caps, and the Nakitashi Security Force logo, a stylized shield with a snake on it, in black ink, on their breast pockets.  Between them, they carry a gurney, Max sprawled out, arms dangling, legs slightly akimbo.
@@ -856,3 +934,49 @@ Dominic shakes his head, "You have it wrong.  I don't need to bribe you."  The b
 Dominic drags him into the nearby stall and removes his clothes, slipping out of his jumpsuit, and putting on Jones' uniform.  Jones' chest was slimmer that Dominic's, and the buttons strain against the button hole, limiting his arm movements.  He slips Jones into the jumpsuit, closing the stall door behind him.
 
 He slips out of the bathroom, and puts on the patrol cap, looking back down the hall, and then forward.  *I'll have to erase the biometric scan, but for now, must get out of here and get to the prison.*
+
+# Ji
+
+Ji is sleeping with her head lolling back, drool coming out of one side of her mouth, a deep, grumbly breath draws in and out of her mouth.  Cadet Johnson, turns his head to stare at her when she snorts awake.
+
+Wiping the drool from her mouth, she sits up, "Sorry, I haven't had much sleep lately."
+
+"No problem, sir."
+
+"Anything to report?"
+
+"There was a hit for the employee you asked to monitor."
+
+"D Quinn?"
+
+"Yes, sir, he was arrested for autodrive jacking."
+
+"He was jerking off in an autodrive car?"
+
+"No, ma'am, er, sir, he stole a car."
+
+"Fuck the fuck?"
+
+"Yes sir"  He pulls up the full body mug shot on the computer screen.  "I thought we weren't supposed to take these anymore?"
+
+"At the discretion of the arresting officer.  Who was it?  Oh, Joanna Bahr.  She's a fucking bear.  You ever meet her?"
+
+"No, sir."
+
+"Probably for the best. Any other details?"
+
+"No, sir.  It says he is currently in the holding pen awaiting judgement."
+
+"Okay, Pluto, security override Delta, Indigo, Cappa, Cappa.  This is agent Ji Go, drop all charges from Dominic Quinn and release."
+
+"Sir, why would you do that to a jacker?"
+
+"You really need to use different phrasing, son.  He's a good guy, I know why he was trying to steal the car.  It's not his fault."
+
+"Sir?"
+
+"Someone close to him has disappeared, he's panicking.  What would you do?"
+
+"Proper channels, sir."
+
+"Dominic isn't a proper channels kind of guy."
