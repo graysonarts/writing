@@ -967,7 +967,7 @@ Wiping the drool from her mouth, she sits up, "Sorry, I haven't had much sleep l
 
 "No, sir.  It says he is currently in the holding pen awaiting judgement."
 
-"Okay, Pluto, security override Delta, Indigo, Cappa, Cappa.  This is agent Ji Go, drop all charges from Dominic Quinn and release."
+"Okay, Pluto, security override Delta, Indigo, Cappa, Cappa.  This is agent Ji Go, drop all charges from Dominic Quinn, erase biometric scan, and release."
 
 "Sir, why would you do that to a jacker?"
 
@@ -979,4 +979,109 @@ Wiping the drool from her mouth, she sits up, "Sorry, I haven't had much sleep l
 
 "Proper channels, sir."
 
-"Dominic isn't a proper channels kind of guy."
+"Dominic isn't a proper channels kind of guy." A small vibration on her wrist causes her to look down.  "If you'll excuse me." She stands and walk towards the door, exiting into the hallway.  Her steps quicken in cadence.  She ducks into the bathroom.  Bending down, no feet, she locks the door.  Far end of the room, she calls up the viewscreen for her implant.  Vienne's face appears.
+
+"Ji, thank god."
+
+"What's the emergency, boss-lady?"
+
+"It's Dominic."
+
+"Yeah I know, he was arrested, I took care of it."
+
+"There is more to it than you know.  Dominic is one of our agents."
+
+"Really?  Is Max too?"
+
+"No, Max was the mark.  Dominic's way in."
+
+"Oh that makes sense.  So Dominic's really straight then?"
+
+"What?  Why does that matter right now? Dominic is in danger."
+
+"Danger?"
+
+"The leaders have decided to terminate her contract."
+
+"Oh fuck.  I should have left him in jail."
+
+"He wasn't in jail, he escaped.  Stole some officer's uniform, access codes." the holoprojected image of Vienne shakes her head.  "It's bad."
+
+"Why? I mean, the guy's pretty and all but he knew the risks."
+
+"Ji, Nic and I have a history.  It is over now, but a history."
+
+"I knew he couldn't be a cocksucker for real!"
+
+"Ji! Focus!"
+
+"Yeah yeah, Do you want me to find him, secure him, and then get him out of here?"
+
+"I'm not sure what to do.  He will need to become corporation-less, live in the outlands, I'd guess."
+
+"It's okay, Vienne, Nakitashi can give him sanctuary."
+
+"He would have to admit he's an agent of NewTek."
+
+"You already admitted it."
+
+"What?"
+
+"Oh, I'm just your run of the mill double agent, freedom fighter."
+
+"Oh god."
+
+"I have enough evidence to take NewTek down now.  Trying to steal a mind control device.  Deep cover operatives, using sex to infiltrate research teams, stealing tech.  I've got it all, baby.  And I'm going to take them down."
+
+"Ji, they'll kill me."
+
+"Maybe, maybe not.  That extraction agent you contacted?  Maybe change his contract, extract yourself."
+
+"I would be ruined."
+
+"Not my problem, Ms. Baune.  Not my problem,"  and she shuts off the viewscreen.  She unleashes a primal scream, guttural, concussive. "oh yeah! that felt good."  She struts out of the bathroom.  A few officers are milling about in the hallway and stare at her when she exits.
+
+"Had a great dump."  She points back at the bathroom, and nods.
+
+Back in the control room, she barks, "Pluto, APB Dominic Quinn, security concern, apprehend immediately, and into isolation chamber."
+
+The robotic voice responds, "Acknowledged."
+
+Cadet Johnson is still sitting at his terminal.  "Sir?  Something changed?"
+
+"High clearance something, sorry, kid."
+
+# Vienne
+
+"Levi?"  her voice shaky, tentative.  Her arms mirror the shake of her voice, one arm crossing her chest, the other, holding a nicostick near her mouth.
+
+A robotic voice responds, "Your party is currently occupied, please leave a message, and it will be relayed in text."
+
+"Levi, change of contract, extraction target now Ms. Vienne Baune plus one for extraction to Nakitashi from NewTek.  Please confirm receipt."
+
+Her home is a small estate along the water in Silicon Valley.  She always found it strange they continue to call it this even after "The Fall".  It's now home to NewTek International Holdings, Ltd.  Her house is a company house, designed to look like an antebellum planation house.  Some tech millionaire originally built it, romanticizing the "old south".  He was single, had started a number of companies that NewTek eventually bought or stole.
+
+The estate lawn is maintained by a set of small robots that swarm the gounds every morning, weeding, watering, and trimming the plant life to keep it perfect.  This is required for all company-owned homes.
+
+The inside of the house has been retrofitted with all of the latest technology.  She barely needs to touch anything during the course of her day.  She stands, pacing in her kitchen.  Her face etched deep with worry.
+
+There is a bang outside, and she jumps out of her skin, letting out a small yelp.  "It was just an animal, Vienne, pull it together."  she says to herself.
+
+Simon enters from the hallway, a towel wrapped around his waist.  His chest is defined with a light dusting of dark hair across it.  "Everything okay, Madame?"
+
+"Are you coming with me, Simon?"
+
+"I don't see that I have any other choice."
+
+"I'm sorry you are part of this."
+
+He moves in to close the distance between them.  He puts his hands on her shoulders, presses his body against her. "I love you. Why wouldn't I be a part of this?"  He turns his head to the side and rests it on her chest.  Sometimes she forgets how tall she is.
+
+"Simon, you don't know what love is."
+
+He shrugs, "I feel something for you.  Maybe it's love, maybe it's a fierce feeling of loyalty, but does it matter?"  He presses his lips into her neck, biting softly.
+
+She pushes him away slightly.  "Simon, don't."
+
+"I should put on clothes."  He turns around to leave, but she grabs the edge of his towel, pulling it off of him as he walks away, his butt oscillating contraction and relaxation as he continues to walk out the room.
+
