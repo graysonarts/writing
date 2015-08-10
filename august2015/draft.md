@@ -1085,3 +1085,76 @@ She pushes him away slightly.  "Simon, don't."
 
 "I should put on clothes."  He turns around to leave, but she grabs the edge of his towel, pulling it off of him as he walks away, his butt oscillating contraction and relaxation as he continues to walk out the room.
 
+# Levi
+
+Levi is on his third day at the prison.  He has proven himself to be a capable, rule-regarding private, and the general is quite favorable of him.  He is eating lunch with the one of guards from the isolation cells, Officer Jameson.  he looks frail, his skin a pallid gray with long dark hair.  He speaks with an accent that Levi cannot place, from somewhere in the baltic states.  *All these kids working here*
+
+"And you restored the motorcycle yourself?"
+
+"Yes, Sir, every inch of her."
+
+"What's it like to ride it?  Would you mind if I tried it?"
+
+"Do you know how to ride a cycle?"
+
+"Not really.  But I'm sure I'm a fast learner."
+
+"Sure, let's go out to the desert, no cars around here, and I can teach you."
+
+"Rad!"  Officer Jameson pumps his arms into the air.
+
+"How about tonight after your shift is over?"  Levi leans in.
+
+"Sure, I get off at 6," the smile make the words bright and energetic.
+
+"Perfect."
+
+…
+
+Jameson's arms are held tight against Levi's waist as they speed down the road, the monotonous landscape of desert blurring as they sail through the evening air.  After an hour, Levi pulls off onto the side of the road, stopping the bike in a flourish of dust, swirling around them against the last evening sun.
+
+"Why'd we come so far out?"
+
+"So there is no signal. No Witnesses."
+
+"What do you mean?" a tremble to his words, his eyebrows raise.
+
+"No signal means no cars, no cars mean no people."
+
+"Oh okay, so no one to report me for driving unlicensed?"  His voice relaxes.
+
+"Right." Levi is deadpan.  "Hop on," he ticks his head towards the bike.
+
+With a spring to his step, Jameson hops back onto the bike.  "How do I start it?"
+
+"Hold down on that right there, now press down hard with your foot."  The engine roars to life, some crows fly into the air, startled by the sudden sound.  The vibration is added to Jameson's voice.
+
+"Now what?" his words stretch out to the horizon.  Levi is behind him, body pressed against his, crook of the elbow pressing into Jameson's throat.  Arms flailing, grasping for air, grasping for release.  The moment lingers, hands pleading, clawing, slapping in vain.  Legs straighten, trying to dislodge.  Spasm, and then limp.
+
+"Sorry, Kid."  He picks up Jameson's wrist, his hand flops around.  A small box connects between them, with a series of beeps and then "Transfer Complete" flashes across the screen of the box.
+
+Levi pushes Jameson's rag doll body off of the motorcycle, landing face first in the dirt, knees buckled under him.
+
+Levi shakes his head.  "Fuck, kid. I can't leave you like this.  You'll die."
+
+He hauls Jameson up onto the back of the bike, lashing him down to the back.  "Hmm" he rubs his chin.  "Nah that won't work."  He stares off into the distance for a moment before hanging his head.
+
+He opens the seat compartment rummaging around in it, pulling out a small vial.  He cracks it open, and waves it under Jameson's nose.  Jameson jolts, eyes snapping open.
+
+"What? What happened?" confusion grips his voice.
+
+"I don't know, man, you started to choke or something, fell over, passed out.  Good thing I had these smelling salts."
+
+He stares up into the sky, and brings his eyes to meet Levi's.  "You, you tried to strangle me?"
+
+Levi laughs, "What?  Nonsense.  Why would I do that?"
+
+"I don't know."
+
+"I think something might have stung you, little bit of venom.  It can cause weird shit to happen.  Desert is full of those things, man."
+
+Levi extends a hand to help Jameson off the ground.  Standing Jameson dusts himself off, wiping the dust from his face.  "Whatever, take me home."
+
+"Sure thing, you might want to get your head looks at, you took a pretty nasty spill when you passed out."
+
+"Yeah."  He hops onto the bike behind Levi, grabbing tightly around his waist again.
