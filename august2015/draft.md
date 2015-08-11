@@ -1061,11 +1061,11 @@ A robotic voice responds, "Your party is currently occupied, please leave a mess
 
 Her home is a small estate along the water in Silicon Valley.  She always found it strange they continue to call it this even after "The Fall".  It's now home to NewTek International Holdings, Ltd.  Her house is a company house, designed to look like an antebellum planation house.  Some tech millionaire originally built it, romanticizing the "old south".  He was single, had started a number of companies that NewTek eventually bought or stole.
 
-The estate lawn is maintained by a set of small robots that swarm the gounds every morning, weeding, watering, and trimming the plant life to keep it perfect.  This is required for all company-owned homes.
+The estate lawn is maintained by a set of small robots that swarm the grounds every morning, weeding, watering, and trimming the plant life to keep it perfect.  This is required for all company-owned homes.
 
 The inside of the house has been retrofitted with all of the latest technology.  She barely needs to touch anything during the course of her day.  She stands, pacing in her kitchen.  Her face etched deep with worry.
 
-There is a bang outside, and she jumps out of her skin, letting out a small yelp.  "It was just an animal, Vienne, pull it together."  she says to herself.
+There is a bang outside, and she jumps out of her skin, letting out a small yelp.  "It was just an animal, Vienne, pull it together,"  she says to herself.
 
 Simon enters from the hallway, a towel wrapped around his waist.  His chest is defined with a light dusting of dark hair across it.  "Everything okay, Madame?"
 
@@ -1158,3 +1158,105 @@ Levi extends a hand to help Jameson off the ground.  Standing Jameson dusts hims
 "Sure thing, you might want to get your head looks at, you took a pretty nasty spill when you passed out."
 
 "Yeah."  He hops onto the bike behind Levi, grabbing tightly around his waist again.
+
+# Dominic
+
+The voice squawks over the comm system. "APB Dominic Quinn," his picture flashes across the heads up display in the bottom half of the window. "Considered Armed and Dangerous. Non-lethal force authorized. Section 10 capture and detain."
+
+The squad car is equipped with a wide array of fun toys, and Dominic is pleased the autodrive system is functioning.  He they manage to track the access codes, it will shutdown, and then he'll be in trouble, but for now, he is looking over the gear.
+
+Direct siege is not his speciality, but high-powered laser knife for cutting through doors and seat belts takes up a place on his makeshift weapon sling.  A weaponized stunpatch gun is also added, this one rigged to be close to his hand for immediate draw.
+
+The radio chimes in, "Update on Dominic Quinn, Stolen ID from Officer Eliot Jones, central processing search for usages."
+
+"Fuck."  He kicks the autodrive system out of gear, and takes control of the wheel.  His foot slams down on the accelerator, pushing him deep against the seat, as he swerves to avoid the slow moving autodriven cars in front of him.  He flips on the sirens.  A radio signal radiates out to the autodrive cars, and a space opens up.  He slips through them like a thief in the night, smooth, silent, and efficient.
+
+His speed tops out, and he settles back, the cars parting with enough time, adjusting to his speed, never being an impedance, until he needs to make a turn.  He slams on his brakes, waiting for the autodrive cars to make room, and as he turns sharply down Dexter, the engine cuts off, and the door locks engage.
+
+"All patrols within the vicinity of Dexter and Denny, suspect at large, Dominic Quinn has been detained in patrol car twelve west.  Be advised, suspect should be considered armed and dangerous.  Engage remote control system to transfer to prison."
+
+"Fuck!" his hands slam into the steering wheel.  He looks around, searching for something, noticing the SlamBar™, designed to break safety glass in the case of auto collision.  It's a vestigial piece of equipment that predates the autodrive system.  Since it was invented, collisions are almost non-existent.
+
+He primes the charge, and places the flat bar against the windshield.  He presses the small metal button on the top of the bar, squeezing his face against his expectations.  The charge ignites, and the windshield presses out, rebounds back in, pushing his arm into his body, and then wobbles back into place.  Small fractures appear in the windshield, but the Duraflex™ safety glass withheld the force.
+
+*Goddamn it*  He kicks hard with the heel of his shoe, and a large crack sounds, suddenly swallowed by the wailing of the sirens.  Two patrol cars, slide into view on either side of the car.  He kicks another time, using the back of the seat to add more force as he pushes himself through the windshield.
+
+Glass tears at his clothes and skin, leaving varying sized gashes in both, blood oozing, he cries out in pain, but continues through the windshield, shifting his weight to his feet by pressing off of the steering wheel.  Quick looks around, officers in the front car are unbuckling their seat belts, the passenger further along in the process than the driver.
+
+Dominic springs forward, off of the hood of his car, jumping at the officer in the passenger seat, his leg half way out of the car.  Dominic's foot connects with the door, the force of his momentum pinioning the officer's leg between the body of the car and the door.
+
+The officer cries out in pain, collapsing back into the patrol car.  The driver has both feet on the ground, and is beginning to stand up while this is happening.  Dominic grabs the bottom edge of the door, and swings under the car, sliding under the car, legs first.  His legs intertwine the driver's legs, and he uses a leveraging motion to swing himself out from under the car, at the same time, sending the driver to the ground.  Stun gun out, tagging the driver before he can react. He stays down, twitching from the stunpatch.
+
+*Two down, two to go*  He peeks up from behind the opened driver side door.  They are advancing, stun guns out.  *Fuck*.  He looks inside the patrol car. "Driver incapacitated, vehicle disabled." is scrolling across the heads up display.  *Smart cookies activating the anti-car-jack feature*
+
+The officers from the other car are advancing with measured caution, slow steps, ensuring shielding between them and Dominic.  Dominic pulls out the laser knife out from this patrol car.  The laser knife hums to life as he thumbs the on switch.  He peeks his head up and a stunpatch whizzes passed his ear.  *that was close*  He tosses the laser knife at the officer who shot at him.  The blade is balanced surprisingly well, and spirals through the air, in a slow graceful arc, hitting the officer's shield squarely, then sliding down to the ground, melting the shield into two pieces.
+
+The laser knife sparks off the ground, popping and sizzling.  The officers look down at it, and Dominic is in motion.  In a quick hopping motion, he is over the door, sprinting full speed at the office who shot at him.  Two steps left, he leaps into the air, hitting the officer squarely in the chest, they take to the air, a brief moment, clearing the laser knife, and landing on the ground.
+
+Stunned from the fall, the officer grasps at the ground, trying to stand.  Dominic rolls to a sliding stop well passed the officer's head.  As he stands to continue running, a stunpatch hits him squarely on the back, and he collapses to the ground.
+
+# Ji
+
+"We have him, sir," the voice crackling over the bad radio connection.
+
+"Copy that, bring him to the prison, he's destined for an isolation chamber."  Ji vibrates with excitement, her voice laces with glee.  "See, Jameson, we always get our man!"
+
+"I'm Johnson, sir."
+
+"Where is Jameson?" she looks around.
+
+"I believe he called in sick.  Something about not feeling well, and passing out."
+
+"I thought I saw him badge in this morning?"
+
+"No, sir."
+
+"Huh. maybe that was yesterday."
+
+"Possibly, he was working yesterday, showing the new guy around."
+
+"New guy?"
+
+"Private Maksimov.  Transfer from some other company.  Seems voluntary."
+
+"What other company?"
+
+"He wouldn't say, something about an NDA."
+
+"Where is this Maksimov?"
+
+"He's outside.  The general has him gardening.  I don't think he likes having another general in the prison.  Maksimov used to be a general at his old company.  That's what I heard, at least."
+
+"Huh," her mood depresses as she ponders this new arrival.  *Could he be the extraction agent?  Nah, no one is that fast.  It would take months for him to insinuate himself, and even them, years before he was given access to the isolation cells.*
+
+She pulls up Maksimov's employee records.  His company badge photo is blurry, out of focus, and there is little details about his past.  Large chunks of his record are long black bars.  She does not have clearance.
+
+…
+
+She is outside, smoking a nicostick, when the patrol car pulls to a stop in front of the prison.  Dominic is slumped against the window of the back seat, his face smushed up against the glass.  The driver steps out of the car.  "We have him, ma'am."
+
+Ji licks her lips, extinguishes the nicostick, and walks towards the car.  "Stunpatch?"  The officer nods his head.  "And his vitals are fine?"
+
+"Better than I would have expected.  He's in excellent shape, almost like he's not even stunned."
+
+Ji nods her head.  "Let's get him into the cell immediately."
+
+The officers pull him out of the patrol car, hefting him between their arms.  Ji walks into the prison, leading the procession.
+
+The cadets from the control room are pressing their faces against the glass like children waiting for a candy shop to open, eyes wide with wonder.  They whisper back and forth to each other.
+
+Ji scans open the isolation cell vault, the cell walls go translucent as they enter.  "That's not supposed to happen."  The prisoners all advance to the walls, peering out at the new inmate.  "Careful, let's keep him away from view of that one."  She points in Max's direction.  "Otherwise, we might have some problems on our hands."
+
+She pauses for a moment, and grabs a black bag off a nearby table, and sticks it over Dominic's head.  "Better, now there is no chance."  The prisoners are banging on the wall, yelling, though inaudible for the sound proofing of the cells.
+
+One inmate is not at his cell wall, banging.  He never bangs, never moves from his mediation except to sleep and eat.  She steers them clear of this cell.  She shivers when she catches a glimpse of him.  He has been in there for longer than she has been at Nakitashi.  Rumors fly around this place, and the rumor around him is that he is Akio Nakitashi's father, a rebellious man who tried to stop his son's take over.  Those are rumors.  From her best glimpses of him, he is not Japanese, so the rumors hold little credence for her.
+
+Under Ji's instruction, they place Dominic in the cell next to Max's cell.  "These two are top priority for guarding.  I want at least two guards in here at all times.  Do not trust this one."  She points at Dominic.
+
+"Where is Jameson?!" The officers shrug.  "Okay, fine."  She walks into the hallway, "You!" she points at a cadet walking down out of the woman's bathroom.  "Do you know this new private Maksimov?"  The cadet shakes her head.  "He's outside, tending the lawn.  Have him report to me, here, immediately."  She nods her head and runs off down the hallway.
+
+# Max
+
+# Vienne
+
+# Levi
