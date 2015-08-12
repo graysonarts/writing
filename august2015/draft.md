@@ -1259,4 +1259,157 @@ Under Ji's instruction, they place Dominic in the cell next to Max's cell.  "The
 
 # Vienne
 
+"Vienne, we should just drive, get in the car and drive away from here."  Simon's hands are pressing into her shoulders.
+
+Tears are streaming down Vienne's face, "I know, I know."
+
+Simon leads her to the car, helping her get into the passenger side door.  He runs off as she sits in the car, sobbing deeply.
+
+He reappears with two backpacks, clothes stuffed in, unfolded, zipper pulled tight over the disarray, not full closed.
+
+She inhales deeply, wiping her face.  As he's throwing the bags into the back seat, she shifts over into the driver's seat.  He slams the back door, crosses over to the passenger side again, and gets into the car.  She fingers the garage door open, and starts the car.
+
+NewTek did not invest in the drone mesh network like Nakitashi did.  As a result, their cars are not self-driving.  The most advanced collision avoidance system that NewTek installs in their employee cars is entirely self-contained and disconnected.  Programming and security updates happen when parked at the owner's house.
+
+She shifts the car into reverse, and depresses the accelerator sharply.  They lurch backward, swinging into the street.  She shifts the car into turbo mode, and they speed down her neighborhood's on ramp onto the highway.
+
+They drive in silence for an hour, the car rumbling along the daily commuters, and the long haul truckers, until the traffic thins, the herd of cars dwindling to the lost sheep.  The city fades out of view finally, and Vienne begins to breath normally again.
+
+"Where are we going to go?"  Simon asks.  His legs are fold up in front of him, chin resting on his knees.
+
+"Nakitashi.  Ji said they might protect us."
+
+"That's a long way to go for might"  Simon's voice cracks.
+
+"What other option is there?"  She looks at him for a brief moment, and then flicks her eyes back to the road.  She reaches out and runs her fingers through his hair.  "Don't worry, I'll take sure you are okay."
+
+He half smiles, and then turns to stare out the window.  The stretches of urban ruins are endless here.  As far as his eye can see, the remnants of strip malls, long since abandoned, call out to the weary traveler.
+
+His breath is fogging up the window as he talks, "The bottom feeders live in these strip malls, corporation-less tribes of feral humans, their beady eyes staring out, beckoning to those easily enticed."
+
+"Simon, you know the bottom feeders are just legend, right?"
+
+"I don't want to be corporation-less, Vienne.  That's worse than death."
+
+"Don't worry, Simon, we'll be okay.  If not Nakitashi, maybe we try somewhere back east.  And if that doesn't work, I still have friends in France."
+
+Simon draws an arrow in the fog on the window.
+
 # Levi
+
+Levi is standing guard on the inside of the isolation cell doors.  The echoes of his foot tapping against the concrete floor causes Officer Jannick, a tall woman with curly auburn hair to squint her eyes at him.
+
+The muscles of her arms ripple and strain her uniform shirt, as she picks up a tray off of the food cart.  She swipes the controls on the cell the walls translucent as a small window opens.  She depositing the tray inside with a bang that overpowers Levi's tapping, swiping the cell opaque again.
+
+"Fucking waitress duty again.  Ji Go isn't even in the military.  Fucking security assholes."  Another food tray bangs onto the small metal ledge inside of the cell.
+
+"I can finish up for you, sir.  I'm stuck in here anyway."  Levi forces his voice to an even tone.
+
+"Yeah whatever," she drops the tray back onto the cart and starts to leave.
+
+"Did Ji Go say we needed two in here at all times?"
+
+Levi shakes his head, "Not that I recall."  His jaw clenches and releases as she turns her head to leave.
+
+"Whatever." And the door slides closed behind her.
+
+As soon as the door seals shut, Levi springs into action.  His pace is hurried, and he reaches the internal control console.  He switches the wrist profile to Officer Jameson's profile.  He initiates silent lockdown, this will seal the isolation chambers without alerting the prison system, but it does register in central processing.  He sets his wrist to countdown fifteen minutes.
+
+Quickly he moves over to Max's cell, releases the latch.  The wall falls into the floor.  Max looks up, bleary-eyed, blinking.  "What? What's going on?"
+
+"You are leaving.  You are being recruited by NewTek International Holdings, Ltd.  Your cooperation is not necessary."
+
+Max backs up into his cell, distance between him and Levi.
+
+Levi rolls his eyes, "Where are you going go?"  He advances into the cell.
+
+The clunk of a vent dropping to the ground echoes out into the room.  
+
+Levi turns around, and begins to walk towards the entrance to the cell, sneaking a glance out the cell.  Dominic stands in the middle of the room, a stun baton liberated from the guard post in his hands, his breathes labored as his eyes settle onto Levi.
+
+# Dominic
+
+Dominic's shirt is torn to shreds from the earlier fight, so he discards it into the corner of the room.  Sweat drips from his naked chest as he readies himself for another attempt.
+
+He is standing with his back against one wall, and he launches, coming up to a full sprint in a short moment.  He jumps, landing his foot half way up the wall, his leg compresses under him, and he launches himself higher.
+
+This time his fingers connect with the grate in the center of the ceiling, firm grasping the grate.  From his countless hours in this cell, he knows he grate is in two parts, either of which are big enough for him to slip through.
+
+He adjusts his grip, and swings a foot up into the other half of the grate, and it swings in.  He hooks his foot onto an unseen ledge, pushing down, leveraging himself up into the ventilation shaft.
+
+The shaft is large, huge volumes of air move through it in slow gusts.  On all fours, he makes his way in the direction of the center of the isolation tank.  A similar grate sits at the center of the room, and he peers down it.  *Two Guards*  He waits, breath held, listening, but the woosh of air blocks the exchange, but one of the guards leaves.
+
+*If he comes under the grate* but the guard does not.  He is rushing around, and opens a cell.  Dominic watches him enter the cell.  *This could be my only chance*
+
+He kicks sharply at the grate, and it drops down to the ground.  He grabs the edge of the other half of the grate, and levers himself down into the opening, hanging for a brief moment.  He spots the ground and lets go, falling quickly to the ground.  His knees begin to absorb the fall, but the force is too much, so he tucks into a roll, and then back onto his feet.
+
+The guard's weapon lock box is open, but it is vacant every weapon except a stun baton.  Dominic runs over to grab the baton.  Once it is in hand, he turns around.  Levi sticks his head out of the cell.  Their eyes lock.
+
+In an instant, Dominic is launching himself at Levi, stun baton crackling with energy.  Dominic telegraphs his baton swing giving Levi enough time to duck out of the way, as it swings over his head.  Levi grabs Dominic's wrist, twisting it up, trying to force Dominic's hand to release the baton.
+
+Dominic's right leg sweeps behind Levi's left, but the move is anticipated, deftly stepping up as the foot sweeps the ground.  The leverage on Dominic's arm is increasing, forcing him to lower himself to the ground.
+
+With a sudden movement, Dominic drops to the ground, and connects his feet into Levi's sternum.  Pressing up and behind him, Dominic tosses Levi to the ground behind him.  The hold on Dominic's wrist disengages, and Dominic rolls to a standing position.  He sees Max, causing him to pause.
+
+"Behind you!" Max yells, and Dominic ducks just in time for a wild haymaker from Levi.  Dominic swings the baton around, connecting with Levi's neck.  Quick convulsions, and then Levi's limp body is pressing into Dominic, heavy, unmanageable.  He dumps Levi to the side, and runs over to Max.  They embrace, followed by tongues intertwining forcefully, hands running through hair.
+
+Max pushes Dominic away.  "Holy shit."
+
+"Sorry you saw that." Dominic shrugs, looking back at Levi's unconscious body.
+
+"That guy was an extraction agent."
+
+"Oh?"
+
+"Yeah for your employer." He punches Dominic in the chest, slightly knocking the wind out of him.
+
+"Max, it's complicated."  He eyes searching the cold, dirt-smeared mask of Max's face.
+
+"You were paid to make me love you.  Like a whore."  His words sharp, piecing, cut off at each syllable.
+
+"At the beginning, sure."
+
+"You are heartless!"  tears begin to trickle down Max's face, streaking clean spots through the dirt.
+
+"Max, I'm not heartless.  I fell in love with you, that's why I'm here.  NewTek will kill everyone involved in this project.  I can only assume my handler is dead, and now that this guy," Dominic takes a moment to kick him in the side, "has failed to extract you, they'll be coming after you, but we can go corporateless, live out in the badlands.  It's not that bad."
+
+The isolation tank door chunks unlocked, and slides open.  Six armed guards are pointing assault rifles at them as they turn to look in the direction.  Ji walks through the door, between the guards, coming towards them.
+
+Dominic instinctively steps in front of Max, shielding him from her advance.
+
+"Nic, Nic, Nic.  Good job disposing of this NewTek agent.  She motions to Levi.  "I knew someone in the prison was the extraction agent.  I had a hunch it was this mysterious motherfucker."
+
+"Ji, look, I'm sure you've heard things about what I did… wait a second, what are you doing here?"
+
+"She's top brass in security at Nakitashi!" Max stammers.  Dominic's face goes slack-jawed.
+
+"Don't look so surprised.  I'm quite good at what I do.  I even had Vienne convinced."
+
+"Vienne?"
+
+"Your ex-wife.  Your handler." she attitude flowing form her head weave as she accentuates each sound.
+
+"You were working for NewTek, too?"
+
+"I was playing them for the fools they are.  I guess Maksimov didn't get the memo though."
+
+"What are you going to do with me now, Ji?"  Dominic bends down, and puts handcuffs on Levi.
+
+"We are willing to give you protection from NewTek."
+
+"What's the catch?"
+
+"You have to help us take them down."
+
+"Or?"
+
+She motions her hands behind her.  "They open fire, a prisoner escape attempt appropriately squashed.  Dominic Quinn rendered neutralized.  Poor Max Bosko caught in the cross fire."
+
+"Wait a minute!" Max screams.  He walks towards Ji, "I didn't do anything wrong!"
+
+"Okay, Poor Max Bosko was injured during the escape attempt."
+
+"I guess I have no choice but to take your offer, huh?"
+
+Ji shrugs, turning away from him, "pretty much.  Guards?  Strip them down, put them in interrogation room five, hands bound.  Use the MagCuffs™."
+
