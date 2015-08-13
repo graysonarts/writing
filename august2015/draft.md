@@ -1255,7 +1255,6 @@ Under Ji's instruction, they place Dominic in the cell next to Max's cell.  "The
 
 "Where is Jameson?!" The officers shrug.  "Okay, fine."  She walks into the hallway, "You!" she points at a cadet walking down out of the woman's bathroom.  "Do you know this new private Maksimov?"  The cadet shakes her head.  "He's outside, tending the lawn.  Have him report to me, here, immediately."  She nods her head and runs off down the hallway.
 
-# Max
 
 # Vienne
 
@@ -1387,7 +1386,7 @@ Dominic instinctively steps in front of Max, shielding him from her advance.
 
 "Vienne?"
 
-"Your ex-wife.  Your handler." she attitude flowing form her head weave as she accentuates each sound.
+"Your ex-wife.  Your handler." she attitude flowing from her head weave as she accentuates each sound.
 
 "You were working for NewTek, too?"
 
@@ -1413,3 +1412,38 @@ She motions her hands behind her.  "They open fire, a prisoner escape attempt ap
 
 Ji shrugs, turning away from him, "pretty much.  Guards?  Strip them down, put them in interrogation room five, hands bound.  Use the MagCuffs™."
 
+# Max
+
+The cold metal chairs are cold against their naked flesh as the guards push them down onto the chairs.  The cuffs activate, and their hands are shackled to the backs of the chairs.
+
+Max, with fire in his eyes, looks at Dominic in the mirrored wall across from them as the guards leave the room.  The door snaps shut.
+
+"Your wife?" his voice measured, a cutting edge dragging across every sound.
+
+"Can we not do this right now?"
+
+"What else are we going to do, Nic?  Wait for Ji to come electrocute our balls to get information out of us?"
+
+"That would feel weird."
+
+"Dominic, what the fuck?"
+
+Dominic tries to twist the chair to face Max, but the chair is bolted into the ground, unmoving.  He turns back towards the mirror, and his eyes cannot help but trace their way up Max's exposed body.
+
+"Look, Vienne was a lot time ago.  You knew I had women in my past, but that does not mean I don't love you."
+
+"You mean, you were paid to love me.  Like a prostitute."
+
+Dominic shakes his head, lowering his gaze at the ground. "Yes, like a prostitute.  I'm a whore, is that what you want me to say?"
+
+"It's a start."
+
+"It was a job, at the beginning.  It was a very good job, lots of money, fun toys to play with, but somewhere along the way, I stopped caring about those things, and started caring about you.  I started to really love you."
+
+"How can I believe you?"
+
+"I…I don't know," his voice low, his words spilling out of his mouth as a slow trickle, matching the tear rolling down his cheek.
+
+The door whirs open, and Ji is silhouetted against the intense light of the hallway.
+
+"That was so touching," disdain creeps through her every word.  
