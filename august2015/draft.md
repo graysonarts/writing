@@ -1444,6 +1444,59 @@ Dominic shakes his head, lowering his gaze at the ground. "Yes, like a prostitut
 
 "I…I don't know," his voice low, his words spilling out of his mouth as a slow trickle, matching the tear rolling down his cheek.
 
-The door whirs open, and Ji is silhouetted against the intense light of the hallway.
+The door whirs open, and Ji is silhouetted against the intense light of the hallway.  The stun baton she is holding crackles with maniacal vigor.
 
 "That was so touching," disdain creeps through her every word.  
+
+She leans her head back out the door.  "Black Ops, shut off the cameras," shorts orders to unseen agents.  She punches a few commands into the wall-mounted terminal, and a shutter slides down over the mirror.
+
+"No witnesses."
+
+She punches in a few more commands, and the door slides closed, the thunk of the security bolts echo through the room.
+
+"No interruptions."
+
+She fondles the stun baton in crude, lurid movements.
+
+"Get on with it." Dominic's voice deadpan, but soft.
+
+She looks up at the ceiling, mumbling words to herself.  The lights in the room dip in intensity twice.  "Okay good, cameras are off."
+
+An edge of panic laces Max's words, "What, what are you going to do to us?"
+
+# Levi
+
+Levi's eyes slowly gain focus on the ventilation grate above the bed in his isolation cell.  His hands roughly fettered behind his back, the weight of his body pressing into his wrists.
+
+He rolls off the bed, landing on his feet.  The quiet slap of his bare feet against the smooth stone bounces around the little room for a brief moment before dissipating to nothing.
+
+He looks around the room. *Step one, remove restraints*  If he had been conscious when they were attached, he would have made his wrists seem bigger, making it easier to slip out of them, but they are on tight.  Now he must improvise.
+
+He has his belt.  He sits down on the ground, slipping his arms under his feet.  Unbuckling his belt, he removes it from his pants.  Hidden behind the belt buckle is a survival knife.  He slips it out of the sheath, and slides the handle between his knees.  He runs the restraints over the small blade in quick succession.  He counts the slices.  *52* The restraints fall to the ground.
+
+The occasionally vibration in his wrist signaling a waiting message has been happening for two hours now.  He fingers his wrist, and the first message reads out on the holoprojector.  "Levi, change of contract, extraction target now Ms. Vienne Baune plus one for extraction to Nakitashi from NewTek.  Please confirm receipt," flashes across the screen.  He swipes that message away, and the second message appears, "Contract Canceled.  Payment in full.  Vienne Baune no longer employed by NewTek".
+
+He shrugs, and swipes the second message away.  "Next order of business, get the fuck out of Nakitashi."
+
+He bangs on the wall.  A moment passes, and he knocks again.  After the third time, the small window opens.
+
+One of the nameless cadets' mouths appears in the window.  "What do you want?"
+
+"My contract was canceled.  By order of the involuntary extraction clause of the UCSA charter, I am absolved from all possible corporate infractions in the pursuit of carrying out my contract at such a time as the contract is canceled as not fulfilled."
+
+"I don't have the authority to release you."
+
+"Then go find someone who does, or I shall be forced to contact the MENU to enact their peacekeeper duties and enforce the rights of the union for its member, namely me."
+
+"One second."  The window slides shut, and a soft murmur can be heard.  Minutes pass, and Levi stands, staring at the little window.
+
+The wall becomes translucent, and then falls to the floor.  The general is standing on the other side as the wall falls into the groove in the floor.
+
+He has his finger up to his ear.  He holds up the index finger on his other hand.  Levi taps his foot.  The general nods his head a couple of times.
+
+"MENU verified the contract cancelation.  I will escort you out of here, and then you will be free to go.  And by go, I mean, immediately leave Nakitashi territories because if any other corporate infractions happen or you are still trespassing on Nakitashi properties by tomorrow, you'll find yourself back here, but so deep in our black ops site that even your mother won't remember you being born."
+
+"Colorful."  He raises his eyebrows, "Trust me, I'm done with this place."
+
+# Vienne
+
