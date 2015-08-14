@@ -1498,5 +1498,102 @@ He has his finger up to his ear.  He holds up the index finger on his other hand
 
 "Colorful."  He raises his eyebrows, "Trust me, I'm done with this place."
 
-# Vienne
+# Simon
 
+Vienne is fast asleep in the backseat, and Simon's eyes are glued to the road, a single spotlight of his headlights piercing out of the darkness ahead of them.  This is the part of the trip up the coast that he hates.  The giant-bore tunnel straight through the Siskiyou Mountain Range.  Once the world's oil supply ran dry, all cars were converted to electric/solar, and a vast network of charging stations were setup to allow continuous nighttime driving.
+
+However, the electric cars do not have enough power to make it up the mountain.  Some politician turned corporate planner suggested to the UCSA board that a large-bore tunnel would be the solution.  It took them ten years to drill the tunnel, running two boring machines from each direction.
+
+The problem is the tunnel impossibly long, and impossibly dark, and the batteries do not last.  Simon notes the battery level, one quarter left.  A charging station should be coming up any moment.
+
+But in the darkness of the tunnel, an underworld thrives, bandits equipped with nightvision, and real guns, the kind that shoot real bullets, and make people real dead.  Simon reaches into his bag in the back seat, stealing brief glances behind him, eyes returning to the road.  Vienne stirs as he jerks the car to the side.
+
+"Where are we?"
+
+"The tunnel, nearing the first charging station."
+
+"Oh.  What are you digging for?"  She swats his hand away, he looks back at her for a brief moment.
+
+"My gun."
+
+She pulls out a stun gun.  "A stun gun?  That's not going to help."
+
+"I should have a flare gun in there.  I thought we could pop off a couple of flares in each direction so we can't be ambushed so easily."
+
+"We could activate the emergency lighting system."
+
+"If we had access."
+
+She pulls out a key card with a small metal square on it and veins radiating out to the edges.  "Courtesy of NewTek.  I thought it might be useful."
+
+"Oh Brilliant!"  the lingering vestiges of his childhood spent in London surface briefly.
+
+The small, bluish light of the recharging station looms ahead of the car, and Simon pulls into the station.  Vienne jumps out of the backseat, running to the station's control panel.  She inserts the key card, and presses the large red button.  The tunnel becomes ablaze with aggressive floor lights, flickering on in all directions.  The smooth-bored walls, around up around them.  The emergency lights are embedded within the upper crest of the tunnel, shining down.
+
+Simon exits the car, noticing figures in the distance scurrying away into holes and doorways hidden from the main channel of the tunnel.  He pulls the charging cable from the hood of the car, and attaches it to the charger.  He passes his wrist over the scanner, and punches in "Fast charge, Maximum Power".  The device calculates the price and displays it.  He shakes his head, and hit the "go" button.
+
+# Ji
+
+Ji deactivates the MagCuffs™ from Max's wrists, handing him a robe.  She walks to Dominic, and stands over him, looking down.
+
+Max rubs his wrists, "What's going on?"
+
+"I'm going to ask your lover boy here a couple of questions, and then I'm going to help you escape."
+
+Dominic looks up at Ji, "Help us escape?"
+
+"Yes, I'll explain after you answer a couple of questions."
+
+Dominic shakes his head, "yeah, sure?  Hopefully I can."
+
+"How long have you been working for NewTek?"
+
+"Since I was fifteen. They caught me skimming credits from their corporate bank, gave me a choice."
+
+"Wow, ten years?"
+
+"Something like that."
+
+"Are you still working for them?"  She holds the stun baton against the chair, between his legs, dangerously close to scrotum.
+
+"Technically? I don't know.  Practically? fuck no." His head jerks to the side, emphasizing the end of his sentence.
+
+"Are you a cocksucker?"
+
+"What the fuck, Ji?"
+
+"Okay, Okay. I don't really care.  We are going to get you out of here."
+
+She deactivates the MagCuffs™ on Dominic's wrist.  No robe is offered.  He rolls his eyes, shaking his head in disbelief.
+
+"Who is we?"  Max chimes in.
+
+"The WLF."
+
+Dominic and Max in unison, "What?!"
+
+Max continues, "I thought you worked for Nakitashi?"
+
+Dominic finishes, "And I thought you worked for NewTek?"
+
+Ji waves her hands, "You are both right and wrong.  I'm a Worker's Liberation Front warrior.  I've collected enough information to make down Nakitashi and NewTek all at once, and restore the left coast to its utopian democratic ideals, and you are both my ticket to doing it."
+
+Dominic's mouth folds into a dubious pose as he squints his eyes are her.  "How?"
+
+"Simple, Max's mind control device."
+
+"The plans were destroyed," the center of his eyebrows raise up and his blinking becomes rapid.
+
+Dominic goes over to Max, embracing him, his naked flesh pressing into Max's terry cloth robe.  "Not exactly." He holds up a small cylinder between him and Max.  "I might have saved a copy before I destroyed the ones on Nakitashi's systems."
+
+Max punches Dominic in the stomach, sending him to the ground, the cylinder clanging heavy onto the ground.
+
+"I deserve that. What's my part?"
+
+"You'll infiltrate the boardrooms of each company, and use the device on the boards of directors.  Then order them to give voting rights to every employee, and enact a right to work clause in the company charter that expressly allows employees to seek work elsewhere."
+
+"That seems a bit tidy."  Dominic stands up, recovered from the punch.  Max's eyes burn holes into Dominic's chest.  "Will that even work?"
+
+"We hope so.  The backup plan is for you to blow up the boardrooms."
+
+His head lulls back as he rolls his eyes. "I'm not a terrorist, corporate or otherwise."
