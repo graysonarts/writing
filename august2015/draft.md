@@ -573,9 +573,9 @@ There are times when Levi will admit new technology is worth a damn. This is one
 
 His muddy boots are propped up on the artisan surface of the table, smearing what smells like shit onto the edge of the table.  He remains placid, intently watching the dot.  It is moving rapidly. *must be in a car, where is he going?*
 
-The red dot is a projection from the holoprojector.  A geotrack™ receiver is communication with airborne drones that hover the city, relaying signals in a mesh.  The drones are part of a Nakitashi-led research project to develop self-healing packet relay networks that are unbound by the earth.  They indiscriminately transfer packets between them, routing seamlessly from source to destination through a trillion microdecisions.  The employees call it "the brain of Nakitashi-san".  There is more than a little hint of ridicule in the name, but it serves its purpose.
+The red dot is a projection from the holoprojector.  A geotrack receiver is communication with airborne drones that hover the city, relaying signals in a mesh.  The drones are part of a Nakitashi-led research project to develop self-healing packet relay networks that are unbound by the earth.  They indiscriminately transfer packets between them, routing seamlessly from source to destination through a trillion microdecisions.  The employees call it "the brain of Nakitashi-san".  There is more than a little hint of ridicule in the name, but it serves its purpose.
 
-And in Levi's case, it's routing the positioning signal from the geotrack™ embedded device he injected into his extraction target.  He is glad that he suffered through Elysian to get this device into his target.  The target had gone dark for a full day, did not return home, did not go to work, did not visit his fuck-buddy in Elysian.  No trace by conventional means.
+And in Levi's case, it's routing the positioning signal from the geotrack embedded device he injected into his extraction target.  He is glad that he suffered through Elysian to get this device into his target.  The target had gone dark for a full day, did not return home, did not go to work, did not visit his fuck-buddy in Elysian.  No trace by conventional means.
 
 The holoprojector pops up a small floating box with "Incoming…" written in it.  "Encryption enabled, please state response to challenge A5DE02F" appears, letter by letter.
 
@@ -1175,9 +1175,9 @@ His speed tops out, and he settles back, the cars parting with enough time, adju
 
 "All patrols within the vicinity of Dexter and Denny, suspect at large, Dominic Quinn has been detained in patrol car twelve west.  Be advised, suspect should be considered armed and dangerous.  Engage remote control system to transfer to prison."
 
-"Fuck!" his hands slam into the steering wheel.  He looks around, searching for something, noticing the SlamBar™, designed to break safety glass in the case of auto collision.  It's a vestigial piece of equipment that predates the autodrive system.  Since it was invented, collisions are almost non-existent.
+"Fuck!" his hands slam into the steering wheel.  He looks around, searching for something, noticing the SlamBar, designed to break safety glass in the case of auto collision.  It's a vestigial piece of equipment that predates the autodrive system.  Since it was invented, collisions are almost non-existent.
 
-He primes the charge, and places the flat bar against the windshield.  He presses the small metal button on the top of the bar, squeezing his face against his expectations.  The charge ignites, and the windshield presses out, rebounds back in, pushing his arm into his body, and then wobbles back into place.  Small fractures appear in the windshield, but the Duraflex™ safety glass withheld the force.
+He primes the charge, and places the flat bar against the windshield.  He presses the small metal button on the top of the bar, squeezing his face against his expectations.  The charge ignites, and the windshield presses out, rebounds back in, pushing his arm into his body, and then wobbles back into place.  Small fractures appear in the windshield, but the Duraflex safety glass withheld the force.
 
 *Goddamn it*  He kicks hard with the heel of his shoe, and a large crack sounds, suddenly swallowed by the wailing of the sirens.  Two patrol cars, slide into view on either side of the car.  He kicks another time, using the back of the seat to add more force as he pushes himself through the windshield.
 
@@ -1410,7 +1410,7 @@ She motions her hands behind her.  "They open fire, a prisoner escape attempt ap
 
 "I guess I have no choice but to take your offer, huh?"
 
-Ji shrugs, turning away from him, "pretty much.  Guards?  Strip them down, put them in interrogation room five, hands bound.  Use the MagCuffs™."
+Ji shrugs, turning away from him, "pretty much.  Guards?  Strip them down, put them in interrogation room five, hands bound.  Use the MagCuffs."
 
 # Max
 
@@ -1534,7 +1534,7 @@ Simon exits the car, noticing figures in the distance scurrying away into holes 
 
 # Ji
 
-Ji deactivates the MagCuffs™ from Max's wrists, handing him a robe.  She walks to Dominic, and stands over him, looking down.
+Ji deactivates the MagCuffs from Max's wrists, handing him a robe.  She walks to Dominic, and stands over him, looking down.
 
 Max rubs his wrists, "What's going on?"
 
@@ -1564,7 +1564,7 @@ Dominic shakes his head, "yeah, sure?  Hopefully I can."
 
 "Okay, Okay. I don't really care.  We are going to get you out of here."
 
-She deactivates the MagCuffs™ on Dominic's wrist.  No robe is offered.  He rolls his eyes, shaking his head in disbelief.
+She deactivates the MagCuffs on Dominic's wrist.  No robe is offered.  He rolls his eyes, shaking his head in disbelief.
 
 "Who is we?"  Max chimes in.
 
@@ -1597,3 +1597,158 @@ Max punches Dominic in the stomach, sending him to the ground, the cylinder clan
 "We hope so.  The backup plan is for you to blow up the boardrooms."
 
 His head lulls back as he rolls his eyes. "I'm not a terrorist, corporate or otherwise."
+
+Ji shakes her head, "I thought you would sympathetic to our cause."  She presses the stun baton into his pelvis. It's been dialed down to a sharp but not incapacitating level.  Dominic writhes in pain, screaming through clenched teeth.
+
+She remove the baton, and Max is at Dominic's side with quick steps, no hesitation.
+
+"You'll do what you must do, now let's get you out of here.  I have a quad-rotor up on the roof.  You'll use that to escape.  The ventilation shaft here," she removes the grate from a floor level ventilation register, "will take you to the roof."
+
+Dominic returns to his feet, a small electrical burn marks the point of contact with the stun baton.
+
+"How are we supposed to pilot it?"
+
+"I know how to fly those," Max's voice quiet and laced with exhaustion.
+
+Ji and Dominic turn to look at Max, mouths slack, opposite eye brows cocked at inquisitive angles.
+
+"My dad was a pilot, he taught me when I was twelve." Max shrugs.
+
+"Then get going!"
+
+"What about clothes?"
+
+"In the quad."
+
+Max ducks into the grate, followed closely by Dominic.  His smooth butt cheeks disappear into the darkness of the grate as Ji looks on, her head barely moving in a nodding motion.
+
+# Dominic
+
+The ventilation shaft is small with little room to maneuver.  Crawling on all fours through the tiny metal cave, they make slow progress.
+
+*In any other situation, I'd bury my head in that* Dominic stares ahead at Max's butt.  His voice low, in hushed tones, "Nice view from back here."
+
+Max gentle kicks a leg back towards Dominic, connecting with his shoulder as he dodges his head to the side.
+
+For what seems like eternity, they creep along the metal surface until the shaft turns sharply up, vertical to the roof.  The vertical shaft is twice the size of the one from which they just emerged.  Dominic looks up at the smooth, endless metal skylight.
+
+"How far up do you think it is?"
+
+"Looks like ten stories, Max."
+
+"How the fuck are we supposed to climb ten stories?"
+
+Dominic looks around, turning around to get a good look.  He is forced to move Max with him because of the dimensions of the shaft, their bodies pressing against each other, friction causing reactions.  Dominic left side of his mouth raises in a wry smirk.
+
+Max rolls his eyes, "Nic, will you focus?"
+
+"It is pretty hard… to focus."
+
+"What's this?" Max pulls a small tab in the wall of the shaft, and a small compartment opens.  Max reaches in and pulls out two MagLift Ascension Assistive devices and a small note card.  Max hands the card to Dominic while looking over the MagLifts.
+
+"Here, boys, use this to get to the roof -Momma Bear.  I think she wants her code name to be Momma Bear." Dominic laughs.
+
+Dominic looks up from the card, and Max is gone.  His head snaps left and right, spinning around in a circle before he looks up.  The MagLift strapped around Max's waist is rocketing him to the sky.
+
+He picks the second MagLift up off the ground, and straps around his waist.  The blue power button begins to throb once the buckle is fastened; Depressing the button, and he is jerked upward by the MagLift, the card slipping out of his hand, falling in a haphazard manner as it settles delicately on the floor of the shaft.
+
+The MagLift works on the same principles as a railgun.  Its only use is in ascending small cramped quarters, or narrow shoots of high iron content rock.  *Good thing Ji plans things out.*
+
+The upward thrust of the MagLift continues to increase the longer it is activated and the ten stories are cleared in a matter of minutes.  The final jolt of force pushes him up out of the ventilation shaft.  He hovers about the hole for a brief moment before tumbling to the adjacent roof.  The MagLift clicks off. 
+
+Max is pulling on a pair of TacPants, the heavy canvas material drapes under its own weight.  He pulls on a tight-fitting gray shirt, and tosses Dominic the second duffle bag.
+
+Dominic slips his own pair of TacPants on, pulling the cinch belt tight.  As the shirt slips over Dominic's head, "Nic, what are we going to do?"
+
+"How do you feel about working with WLF?"
+
+"I don't hate the idea," Max rummages around the duffle bag, pulling a protein bar from the depths.  He rips open the wrapper, and takes a bite, chewing while he talks, "But I don't think her plan is going to work."
+
+"I know.  But we could take out Nakitashi's main processing center.  That would decommission the company.  They would not be able to enforce their power."
+
+"How?"
+
+"Main tower, that entire second half of the tower is all heat sinks.  Disrupt those, and the place burns.
+
+"Does NewTek have a similar setup?"
+
+"Most of the tech being used by these corporations were designed by the same company, so it should be the same attack vector."
+
+"How do we disrupt it?"
+
+Dominic shrugs, and walks over to the quad, sitting down in the passenger seat. "Not a fucking clue."  Max walks over and takes the pilot's seat, looking over at Dominic.
+
+"This thing has rockets!" Max's voice like a child on Christmas morning coming downstairs to find a new bicycle for a present.
+
+"Ji thought of everything."
+
+Max powers on the quad-rotor, and the blades begin to come up to speed, the drone of the air being chopped to pieces raises in volume, and the quad raises up in the sky, marionette on invisible strings.
+
+The central processing tower looms over the horizon as Max swings the quad to face it, throttling up, closing the distance.
+
+"We need to be quick.  Who knows what kind of defenses this thing might have.  I'll need to shoot the rocket through the metal cage and get a direct hit on the base of the heat sinks."  Max's voice staticky over the comm system of the quad.
+
+Dominic nods.  They fly the rest of the way to the tower in silence as Max concentrates on keeping them on the right course.
+
+As the tower begins to take up most of his vision, Max arms the left rocket tube.  "I've never shot a rocket before.  Though it looks like it has a laser guide," Max points at the bright green dot on the metal cage.  They hover at the base of the heatsinks.  "Looks like we have eight shots.  Hope we don't need them."
+
+As they get closer to the tower, a siren pierces the air and the strobe of warning lights begin the flash on the side of the tower.  Over the comm system, a mechanical voice warns, "You have breached high security airspace, turn back now.  Ground to Air Missiles have been armed."
+
+"Fuck, you need to shoot, now!"
+
+Max takes aim, adjusting the quad's position so the laser guide lands on the base of the heatsink stack.  He pulls back on the trigger, but nothing happens.
+
+"Fuck, the rocket didn't launch."
+
+"Is it armed?"
+
+"Yes!"
+
+"What's the light?" Dominic points to a flashing red button labeled "safety engaged".
+
+Max reaches down the press it, the flashing stops as a missile whooshes passed quad.  "Fuck that was close." He pulls the trigger, and a rocket ignites and speeds out of the left tube, connecting heavily with the heatsink.  A small explosion on impact, and the heatsink begins to careen down from the top of the tower.
+
+"Get us out of here!" Dominic is screaming into the comm system, distorted by the mic, turning into buzzing hard sounds in Max's ear as he spins the quad around, and throttles up.  A second missile blazes passed them.
+
+# Max
+
+Max rubs his eyes.  They have been flying for five hours, his focus is waning.  Dominic snores in the passenger seat.  A yawn escapes Max's body.  He reaches over to nudge Dominic.  "Wake up, I need to find a place to land and take a break."
+
+Dominic grunts, "What?"
+
+"I need to land, help me find a place."  He points to the navigation system maps, "Use that, find me a place to land, I need some sleep."
+
+"There is a large stretch coming up, in what used to be Medford, if I'm reading this map correctly.  It's now a large commune in no-man's-land."
+
+"That sounds good, they don't take allegiances."
+
+"About 50 miles south.  From the sat images, it looks like we'll be able to see the lights."
+
+Max punches on the autonav system, and releases the control stick.  "Any news on Nakitashi?"
+
+"There was a statement by the WLF taking credit for it, and the Governess of the UCSA is swearing to bring the full might of the union security force on the leaders of the WLF."
+
+"Like they even know who they are."
+
+"Right?  Oh, here is a statement from Nakitashi. 'Two recently escaped agents of NewTek International Holdings, LTD. are responsible for the attack, and we will be seeking restitution through the UCSA'"
+
+"How do they rectify that with the wolf statement?" Max takes his eyes off the sky and looks at Dominic.  Dominic's hair is a wild mess from sleeping, strands fly in every direction. *guh, such a pretty boy, even with bed head*
+
+Dominic shrugs.
+
+"I love you, Nic, even though you lied to me, I still love you."
+
+Dominic smiles, placing his hand on top of Max's hand.  "I know, and I love you too."
+
+…
+
+The lights of the Medford Commune light up the sky in front of them.  Max shifts the engines to being vertical thrusters again, and slowly lowers the throttle, descending smoothly into a grassy field next to the only large building in the area.
+
+Max collapses back against his chair as the quad's rotors drag to a stop.  A number of people as exiting the building.  They stare at the quad, eyes searching.  A little child squeals with excitement.  Max stumbles out of the vehicle, and approaches the crowd, Dominic following a few steps behind.  Max stretches his hands out to his side, a sign of peace, as he walks forward.
+
+An old man with dark skin walks forward, out of the group, meeting Max half way.  Max bows deeply to this man, and then proffers his hand in greeting.
+
+"Sir, we are two travelers who need sanctuary for the night."
+
+The man's mouth opens, but no sounds come out.  A wide smile grows from his mouth, and he gestures inside.  Max and Dominic walk towards the small group of people.  They part a passageway into the building for Max and Dominic, and the man follows them directly.
+
