@@ -1710,6 +1710,10 @@ Max reaches down the press it, the flashing stops as a missile whooshes passed q
 
 "Get us out of here!" Dominic is screaming into the comm system, distorted by the mic, turning into buzzing hard sounds in Max's ear as he spins the quad around, and throttles up.  A second missile blazes passed them.
 
+# Governess
+
+KK Scene with Governess + Levi
+
 # Max
 
 Max rubs his eyes.  They have been flying for five hours, his focus is waning.  Dominic snores in the passenger seat.  A yawn escapes Max's body.  He reaches over to nudge Dominic.  "Wake up, I need to find a place to land and take a break."
@@ -1762,7 +1766,7 @@ In hushed tones, "Sanctuary for the night?"  Vienne pulls a couple of paper bill
 
 The young woman puts her book down, receives the bills, and reaches back, fishing for a key off the key board.  She pulls room 312 and hands it to Vienne.  The woman does a half bow as Vienne takes the key, extending her arm to point to the stairwell.  She holds up three fingers, and then picks her book back up.
 
-Vienne grabs Max's hand, and leads him to the stairwell.  He is loaded down with their bags, his steps heavy, echoing through the quiet hallway.
+Vienne grabs Simon's hand, and leads him to the stairwell.  He is loaded down with their bags, his steps heavy, echoing through the quiet hallway.
 
 # Max
 
@@ -1823,3 +1827,181 @@ Levi's head unhinges from his neck, dangling as he puts his index and thumb on t
 Levi slowly raises his hand, showing the wrist implant.  She slips a rope around the wrist, and pulls down sharply, cinching the loop around his wrist.  "Now other one."  His other hand is extended, and she wraps it, pulling his hands together, the rope pressing hard into his skin.  She lowers the rifle, and continue to bind his hands.  When done, she yanks on the rope.  Levi stumbles from the force, but catches himself at the last moment.
 
 She turns around, slinging the rifle over her shoulder, and pulls Levi behind her.  "Where are you taking me?"  Angwah falls into lock step next to her.  With her free hand, she ruffles his hair, finally resting it on his shoulder.
+
+# Ji
+
+The prison is in lock down, the normal reaction to losing connection to the central processing center.  Ji and cadet Johnson are locked in the control room, fail secure more activated.
+
+"What's going on, Sir?" Johnson's voice shakes, cracking slightly as anxiety slithers into her voice.
+
+"Lockdown, lost connection to the tower."
+
+"Why would we lose connection?"
+
+"Solar flares?  Who knows, we just need to wait until the all-clear is given.  You are safe in here."
+
+Ji walks over to one of the terminals and begins typing, looking for some indication of what happened.  She is digging through log files on the system.  For security reasons, all central processing log files are mirrored directly to the security center.
+
+"Huh?" Ji scratches her head.
+
+"What, Sir?"
+
+"Looks like the central processing system overheated."
+
+"Is it something exceptional?"
+
+"Very. The entire top half of the tower is heatsinks."  Ji accesses her wrist implant, connecting to the drone network.  She navigates to the security camera network, the entire city is covered in cameras, and her clearance gives her access to them.
+
+"Oh fuck."
+
+"What, Sir?"
+
+"The tower was hit by a rocket."
+
+"A rocket?"
+
+"Yeah, hold on."  Ji scrubs through the recording, "those motherfuckers!"
+
+"Sir?"
+
+"The two escapees, they blew up the tower after they stole the quad-rotor."
+
+Ji slams her fist into the table, muttering, "that was not part of the plan."
+
+"Sir?"
+
+She waves the question away with violent hands, returning to typing, her fingers banging hard into the keyboard, her typing quick and furious.
+
+Cadet Johnson removes her hat and shakes out her tight, bouncy curls of brown hair.  The temperature is sharply rising in the room, the vents start spewing air, a mixture of lukewarm and hot air is flowing into the room.
+
+A torrent of foul and unsavory words spew from Ji's mouth as she continues to mash on the keyboard.  After a long minute, with sweat beginning to soak through her uniform, the air begins to flow cool again.  The bolts of the security doors drop into the floor, and the doors begin to open.
+
+"I overrode the lockdown, let's get out of here, I'm not sure how long until the watchdog kicks back in and reinitiates."  Ji pushes Johnson through the door.  Other officers and cadets are milling about.
+
+# Dominic
+
+The room they are given is small, but clean.  Dominic tosses his bag down on the ground, and flops down onto the bed.  "What a fucking bad couple of days."
+
+Max stares from the door way. "Really? Our lives are completely fucked, Nic. We just blew up our employer's main core of operations.  You don't think they are going to send a hit squad after us?"
+
+Dominic shrugs, rubbing his stomach, his shirt lifting up to above his navel. "We'll be okay."
+
+"How can you say that?"
+
+Dominic pops up off the bed, pulling Max into the room and closing the door behind him.  He hugs him with strong arms, flattening the space between them into oblivion.  He kisses Max's cheek, "Because I'm here, and we are going to take care of each other."
+
+"Right. Against assassins," Max pushes away from Dominic, but Dominic yanks him back into the embrace.
+
+"Exactly."  He spins Max around and pushes him down onto the bed, straddling his legs across Max's hips.  Max strains under the weight of Dominic's body without success.
+
+"Get off."
+
+"Nope, not until you smile."
+
+Max's face contorts into a bitch-face version of a smile, a delicate mixture of smirk, sneer, and repulsion.  Dominic shakes his head, "Not good enough," and begins to tickle Max.
+
+Breathless protests from Max as only mellowed by Dominic relenting, and letting Max up.  Breathing heavy to catch his breath, Max punches Dominic on the shoulder.  "Asshole," the smile not leaving his face.
+
+Dominic sits back on his heals, pulling his knees up to his chin.  He wraps his arms around his legs, resting his chin on his left knee, smiling at Max.
+
+"What?"
+
+"Nothing."
+
+"Stop staring at me."
+
+"Can't."
+
+Max picks up a pillow and throws it at Dominic's face, catching him off balance, sending him crashing to the floor, hitting his head on the nightstand.  Max rushes to him.  Dominic pulls his bloody hand away from his head.  He stares at the blood, disoriented.
+
+"Fuck… fuck, fuck!" panic rising in Max's voice.  He rushes to the door, opening it, running down the hallway.
+
+Dominic's vision is muddled as he sits on the ground.  The door is open, left open in Max's haste.  He must be seeing things, it must be a concussion because Vienne is standing in the doorway.
+
+"Vienne?" his last words before he loses consciousness.
+
+…
+
+His awareness comes back before his connection to his body reestablishes itself.
+
+Max and Vienne are talking, words not comprehended.
+
+He understands words. "… concussion… blood…"
+
+"… fine… tower… fleeing"
+
+Things begin to connect together.
+
+Vienne is inquiring, "You blew up the tower?"
+
+"Not exactly, we destroyed the heatsink connection.  No lives lost, we hope, just took out their central operations.  It should take them a while before they can become functional again."
+
+"Holy shit, I didn't think Nic had that in him?"
+
+He can feel his body again, move again.  He sits up, head throbbing heavily, His hand instinctively goes to his head, rubbing the blood soaked bandage wrapped slipshod around the wound.  "I have alot in me, Vienne."
+
+"Take it easy." Max is at his side, supporting his back, helping him adjust to lean against the wall.
+
+"What are you doing here, V?"
+
+"Simon and I," she points to Simon who is lurking in the doorway in boxers, arms folded against his chest, "were defecting to Nakitashi.  NewTek was going to eliminate us, you."
+
+"Nakitashi is no more, at least for a while."
+
+"I know, the news wires are abuzz about the UCSA sanctions being placed against NewTek right now for the direct attack on Nakitashi.  I didn't realize it was you who did it."
+
+"Small miracles that it hasn't been leaked."
+
+"The Governess is furious.  She is personally leading the witch hunt against NewTek."
+
+Dominic closes his eyes, listing into Max, who supports him.
+
+"Shit, I'm dizzy."
+
+"You smacked your head pretty hard." Max steadies him.
+
+"I know, I remember."  Dominic smiles.  "I'll be fine in the morning, what's the plan now?"
+
+"Well, if you attack NewTek with the Nakitashi quad-rotor, it will look like a counterattack."
+
+"That would get the UCSA's attention even further." Max offers.
+
+"Right,  but we don't want that much attention." Dominic's words slur together, the effort to talk is weighing on him.
+
+"We could turn states evidence, we have enough to make the UCSA take action against both," Max shrugs.
+
+"That would be a bad idea.  The UCSA was sponsoring our little mission to recover what you invented, Max."
+
+Dominic raises his hand an inch above his leg, letting it flop down with a slap.  All eyes are on Dominic now, "Ji. Wolf."
+
+Max's eyes light up, "Ji is part of the WLF.  She could help!"
+
+Vienne shakes her head. "No, Ji is unreliable."
+
+"She helped us escape."  Max insists, and Dominic echoes with a small nod of his head.
+
+Vienne stands, crossing her arms against her chest, pacing the room.  "Fine, I'll contact her."  She walks out of the room, down the hall into her own room.
+
+Simon hovers for a moment, and Max smiles at him.  "You're adorable."  Blood flushes through Simon's face as he looks at the ground, becoming aware of his state of undress.
+
+"I better go," he points his thumb down the hallway, and leaves.
+
+Dominic pulls his head off the wall, "You are horrible," a small smirk appear on his face before his head sinks back to the wall.
+
+"Get some rest."
+
+# Vienne
+
+The portable comm system's holoprojector is projecting Ji's face in the space above the bed.
+
+"I'm asking for your help, Ji.  You and Wolf, you must help us."
+
+"Why? Those fuck boys did not do what I asked them to, so why should I help any of you?"
+
+"Because we have the same enemy."
+
+"And you want to take down the UCSA?"
+
+"Yes, we can expose them for the corruption, the underhanded scheming.  I have recordings of the Governess ordering people's executions.  We can take them down."
+
+"And what will rise in their place.  Another serpent's head."
