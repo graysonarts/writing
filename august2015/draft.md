@@ -1740,7 +1740,31 @@ Dominic shrugs.
 
 Dominic smiles, placing his hand on top of Max's hand.  "I know, and I love you too."
 
+# Vienne
+
+Vienne drives the car out of the tunnel.  Signals reacquire, and she punches up the navigation system on the heads up display.  Sign posts are superimposed over the road.  "Medford Commune, thirty miles" is the largest sign post.
+
+She nudges Simon awake.  His eyes half open, and he sits up, rubbing his eyes.  "I need to pee."
+
+"How badly?  We'll be at the commune in about twenty-five minutes."
+
+"I should be able to hold it.  We are near Medford?"
+
+Vienne nods her head, eyes remaining on the road.  The road is solitary, the only car on the road.  Back in the sunlight, the car will go significantly faster, and they can drive until the sunsets and the battery runs down again.  They drive on in silence
+
 …
+
+They pull to a stop in front of the commune dormitory as the sun finally dips below the horizon, the shadows long and deep across the flat parking lot.  "Remember, they have all taken a vow of silence and are sensitive to noises, so speak quietly, and try to avoid too much noise."  Simon nods his head listening to her words carefully.
+
+They exit the car, and walk up to the dormitory, pulling open the door.  A young woman, with long, straight black hair and the distinctive eye shape of Asian heritage, sits at the front desk, reading a torn and tattered paperback. What is left of the cover reveals a shirtless man with bulging biceps on the cover, his long hair flowing in the imaginary wind.
+
+In hushed tones, "Sanctuary for the night?"  Vienne pulls a couple of paper bills from her pocket, and hands them to the woman.  Old currency, she spent considerable time stockpiling the money of the badlands, just in case.
+
+The young woman puts her book down, receives the bills, and reaches back, fishing for a key off the key board.  She pulls room 312 and hands it to Vienne.  The woman does a half bow as Vienne takes the key, extending her arm to point to the stairwell.  She holds up three fingers, and then picks her book back up.
+
+Vienne grabs Max's hand, and leads him to the stairwell.  He is loaded down with their bags, his steps heavy, echoing through the quiet hallway.
+
+# Max
 
 The lights of the Medford Commune light up the sky in front of them.  Max shifts the engines to being vertical thrusters again, and slowly lowers the throttle, descending smoothly into a grassy field next to the only large building in the area.
 
@@ -1752,3 +1776,50 @@ An old man with dark skin walks forward, out of the group, meeting Max half way.
 
 The man's mouth opens, but no sounds come out.  A wide smile grows from his mouth, and he gestures inside.  Max and Dominic walk towards the small group of people.  They part a passageway into the building for Max and Dominic, and the man follows them directly.
 
+# Levi
+
+The open road stretches out to infinity for Levi, but he is not going anywhere.  His motorcycle sits on the side of the road, abandoned by him.  Levi is in the median between the two parts of the interstate, laying down in the grass, shielding his eyes from the light of the noon-day sun.  His body is crashing hard, the speed enhancers finally starting to wear off.
+
+His body feels like lead.  His limbs press heavily into the grass, and any will to move is nonexistent in him.  The come down from Amphen is harsh, and he forgot to pack them as he left Nakitashi.  He will be stuck in this grass until his body adjusts, until it is all out of his system.
+
+He had been driving south before the Amphen withdrawal kicked in, through lush pastures and desolate small towns, destroyed by the rise of the corporate states.  He is on the outskirts of the capitol city, a once-proud town now a ruin of government buildings and dilapidated public sculptures.  If only he could have made it to the city before the lethargy hit him, he might have been able to raid a pharmacy.
+
+The rumble of a 'copter begins to doppler in from the direction of Nakitashi.  It passes over head in a cacophony of sounds that sends knives through Levi's head.  He risks opening his eyes to watch it pass, the light searing his retinas.  "Fuck!" in elongated whispers.  The intense pain washing over his body is enough to cause his brain to decide enough is enough, and he passes out, arm draped over his eyes, the rest of him splayed out on the ground.
+
+…
+
+The sun is setting in the sky, and something is poking Levi in the side.  Poke. Poke. Poke in slow intervals.  As his eyes adjust to the crimson and orange light in the sky, the face of a young boy begins to form out of the void.
+
+From the distance, a woman's voice, "Don't go pokin' dead bodies now, Angwah."
+
+"Momma, he ain't dead."
+
+Levi begins to stand up, faltering, his legs collapsing under him.  He tries a second time, and manages to stand.  The boy, Angwah, is dirty, smudges of road dirt cover his face, darkening his blond hair, and turning his white tank top gray.  He holds a large stick, taller than he is.  He looks to be about six years old.
+
+"Get away from him, Angwah!" The woman is equally blond, and equally dirty.  She wears simple gray pants, and a tank top like her son's.  Angwah runs away with uncoordinated limbs waddling under him.  "Whatcha doin' here?"
+
+"I had to stop for… health reasons."  Levi spreads out his hands as a gesture of innocence.  "I'm unarmed."
+
+She trains a rifle on Levi's head. "Too bad for you.  Don't move."
+
+"Ma'am, I mean you no harm, I'd like to just get on my bike and continue on my way."
+
+"That ain't gonta happ'n"
+
+Levi's head unhinges from his neck, dangling as he puts his index and thumb on the bridge of his nose.
+
+"Why not?"
+
+"You trespassin'"
+
+"Trespassing? On what? The highway?  It's public land."
+
+"Nah, it not. It ma land. You trespassin'"
+
+"It was an honest mistake."
+
+"Ain't honest, stranger, your lying."  Keeping the gun draw on Levi, she approaches him.  "You one of those 'borgs with the wrist thing.  Show me, slow like."
+
+Levi slowly raises his hand, showing the wrist implant.  She slips a rope around the wrist, and pulls down sharply, cinching the loop around his wrist.  "Now other one."  His other hand is extended, and she wraps it, pulling his hands together, the rope pressing hard into his skin.  She lowers the rifle, and continue to bind his hands.  When done, she yanks on the rope.  Levi stumbles from the force, but catches himself at the last moment.
+
+She turns around, slinging the rifle over her shoulder, and pulls Levi behind her.  "Where are you taking me?"  Angwah falls into lock step next to her.  With her free hand, she ruffles his hair, finally resting it on his shoulder.
