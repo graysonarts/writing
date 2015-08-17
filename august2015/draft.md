@@ -1710,10 +1710,6 @@ Max reaches down the press it, the flashing stops as a missile whooshes passed q
 
 "Get us out of here!" Dominic is screaming into the comm system, distorted by the mic, turning into buzzing hard sounds in Max's ear as he spins the quad around, and throttles up.  A second missile blazes passed them.
 
-# Governess
-
-KK Scene with Governess + Levi
-
 # Max
 
 Max rubs his eyes.  They have been flying for five hours, his focus is waning.  Dominic snores in the passenger seat.  A yawn escapes Max's body.  He reaches over to nudge Dominic.  "Wake up, I need to find a place to land and take a break."
@@ -2004,4 +2000,153 @@ The portable comm system's holoprojector is projecting Ji's face in the space ab
 
 "Yes, we can expose them for the corruption, the underhanded scheming.  I have recordings of the Governess ordering people's executions.  We can take them down."
 
-"And what will rise in their place.  Another serpent's head."
+"And what will rise in their place?  Another serpent's head."
+
+"Not if we destroy the body, the UCSA is the body."
+
+"What can wolf do for you?"
+
+"Release the recordings, verified authenticity through voice print analysis, release it wide for everyone to see.  Release it to the world."
+
+"Aren't you in the recordings also?"
+
+"Yes, as an agent of NewTek.  I'm willing to take that bullet."
+
+"Figuratively or Literally?"
+
+"Literally literally."
+
+Ji's projection scratches her head, "And then what?"
+
+"Then we get to Alexandrine and the cabinet.  Hold them hostage if necessary.  Demand change."  Vienne pounds the table with her fist, the image of Ji shimmers and waivers as the projector tries to stabilize the image.
+
+Ji shakes her head.  "And the fuckboys are okay with this plan?"
+
+Vienne puts her hands on her hips, "I'm in charge here, not them.  They'll do what's necessary."  Her voice trails off, "once Dominic's head is better."
+
+"Let's say we do this, then what?"
+
+"The world council will need to respond.  These are very seriously charges against the UCSA."
+
+Ji nods.  "okay, I'll contact the WLF leadership, and we'll get back to you."
+
+"Okay, we'll be at the–"
+
+"–No, don't tell me where you are."
+
+"Okay, okay."
+
+"Stay safe until you hear from me."
+
+# Levi
+
+A black hood is over Levi's head.  He hears the murmur of voice in an adjacent room, but the words are muffled, and he cannot make them out.  After a few minutes, the sound of high heel shoes clicking on the stone floor start.  A door opens and shuts, it is an old fashioned door with hinges that creak as it moves.
+
+The hood is removed in one quick motion, and a woman stands in front of him.  Sunlight streams in through her golden curls, and she wears a tracksuit in subtle pink.  She has a file folder in her hands, open like a choir book.
+
+"Levi Kane, mercenary, extraction specialist. ex-NC Military.  Quite impressive."
+
+Levi stares straight ahead, unmoving.
+
+She exhales in a sharp "eh", a combination of a sigh and a laugh, "Okay then, I'll cut to the chase.  I'm Governess Brant of the United Corporate States of America, and your 'country'", she makes air quotes, "needs you."
+
+His eyes meet hers with a slight turn of his head, left eyebrow rising.
+
+"If my sources are correct, you were recently in the employ of NewTek International Holdings, Ltd, correct?"
+
+His head nods once.
+
+"Hired to extraction one Maximilian Bosko?"
+
+Another nod.
+
+"And your contract was canceled?"
+
+A third nod.
+
+"I'd like to reestablish that contract, but under the power of the UCSA.  Our full arsenal will be at your disposal.  Capture is very important, and you should eliminate anyone who has had contact with Mr. Bosko."
+
+"How much?"
+
+"Oh dear, you do not understand.  You are now part the UCSA, your every whim and desire will be catered to.  Money is no longer an issue for you."
+
+Levi thinks for a moment, and nods one final time.  She releases the handcuffs with a small metal key, another anachronism, a comforting thing for Levi.
+
+"Welcome aboard, soldier."
+
+# Simon
+
+Simon is sitting on the bed, cross legged reading a small tablet.  His black hair is wet, and matted against the head.  Droplets of water cling to his exposed chest and a soft terry cloth towel hangs over his shoulders.
+
+Vienne opens the door and comes into the room.  Her hand is applying delicate pressure to her eyebrow ridge as she shakes her head.
+
+"Everything alright, V?"
+
+A deep inhale precedes a slow, exhausted exhale, "It will be.  The WLF is going to help us."
+
+"That's good… right?"  Vienne nods her head at Simon's question.
+
+Simon stands up, straightening out the legs of his boxers as he does, pulling Vienne close to him, folding her into his arms.  "You need some rest, lay down, I'll go find you a drink." As he starts to pull away, but her hands pull him back, and their lips meet for a long, fitful kiss, tongues wrestling for dominance.
+
+"I do need some rest, and a drink would be lovely," as she flops back towards the bed.  Simon adjusts his boxers, his arousal quite prominent in his silhouette.
+
+"I should probably put some pants on."
+
+Vienne giggles, "Sorry."
+
+Simon's eyes narrow at her comment, "No you aren't." He pulls on his pants, and adjusts the waistband of his boxers to hold his erection in place, ensuring the top of his penis isn't showing, and leaves the room.  Vienne's giggle is silenced when the door closes fully behind him.
+
+He looks in both directions down the hallway.  "Where would a drink be?" he mutters to himself, as he walks towards the lobby.  "I hope they have alcohol here.  Crazy cults might be anti-alcohol," as he turns the corner leading into the stairwell.
+
+A woman is standing there, her eyes narrow and fixated on him.  Her mouth is pursed in a scowl as he walks passed her.  She turns  as he passes, her eyes following him.  She lifts her finger, tracing a black-painted finger nail across her neck as her eyes bore into his chest.
+
+Eyes wide, Simon's steps quicken, and he is down the stairs.  He turns around to see if the women is following him, but the stairwell is empty.  He walks to the front desk.  The woman from early in the day is still sitting there, still reading her romance novel.
+
+"Do you sell alcohol?"
+
+She nods her head and points to the small cantina behind a locked gate.  She holds up a notepad that contains the word "closed" on it.  Simon shakes his head.  "No exceptions, huh?"  The women shakes her head.
+
+Simon lets out a quick sharp breath.  He turns around and starts to walk back towards the stairwell.  He feels a soft hand on his should, turning back around.  The woman is holding a bottle of vodka in front of her.  She closes the distance between them, her other hand coming to rest on his chest.
+
+"Oh, I'm," his voice stuttering, "flattered, but," her hand is on his waist band, her fingers dipping below.  He removes her hand, "No."
+
+# Max
+
+Dominic is fast asleep in the bed next to Max.  Max's eyes are bloodshot and ringed in red and black, the bags under his eyes are telling of his lack of sleep.
+
+The sun is beginning to stream in through the window as Max swings his legs over the edge of the bed.  Naked, we walks over to the window, peering out of the blinds.  The quad-rotor is glistening with early morning dew, the sun streaking across it turns it into a multifaceted jewel amidst the sprawling gray of the parking lot.
+
+He picks up his pants from the chair, and slides them over his legs.  He starts to pick up his shirt, smelling it, and then puts it back down.  Grabbing the room key, he walks out of the room, locking the door behind him.
+
+His bare feet pad silently down the carpet, a mind-altering pattern in orange tones, tricking the eye in swirling, mutating shapes.  This is not technology, but awful hotel carpeting used all over the place last century.
+
+He descends the three floors to the lobby.  A young boy, no more than fifteen years old with dark skin, and thin, sharp cheekbones sits behind the front desk this morning.  He smiles a large toothy smile, and Max gives a quick wave, as he rounds the corner, and exits the back of the dormitory.
+
+The yard behind the dormitory is not much more than a patch of grass, a couple of picnic benches, and a small fire pit.  There is a small sandbox in the corner for the children.  The wet grass is cold against his bare feet as he walks out.
+
+He raises his hands up to the sky, stretching every muscle in his body, elongating, reaching.  He folds in half at the waist, hanging his torso towards the ground.  He alternates between these two positions for a count of twenty.  He turns around towards one of the picnic benches and jumps at the sight of a Chinese woman, face creased heavily with age.  She sits on the picnic table, a nicostick in her withered left hand.
+
+"Oh, sorry, I didn't realize anyone was here."
+
+She shrugs.
+
+"Right, you don't talk. Why am I talking?"
+
+"Because we lack discipline," her voice is soft, smooth, almost angelic in a way.
+
+"I thought?" Max approaches her, and sits down next to her.
+
+"Yeah, they've all taken a vow.  There is no point, no reason behind it."
+
+"Then why do they do it?"
+
+"They have a romantic notion of monastic life.  Vows of silence, eating simple foods, all that crap."
+
+"Why are you at this commune if you don't believe in their way of life?"
+
+She waves her hands around, "I own all this, before the commune moved in, I was broke, now," she shrugs, "Now I don't have a care in the world."  She motions towards the dormitory, "And it's not like they can annoy me."
+
+Max laughs an inaudible laugh, his stomach shaking.  "Good point."
+
+The woman takes a long drag on her nicostick, exhaling like the hiss of tire with a slow leak, the serpent's hiss to warn of impending trouble.
+
