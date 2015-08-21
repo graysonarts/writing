@@ -60,7 +60,7 @@ Wincing at the name, "yes."  The purple ring pulses languidly as the processor g
 
 He touches the implant on his right wrist lighting up the time under his skin.  The glowing numbers read "10:45am".  15 minutes. He can do this.  Through slight movements of his fingers, he scrolls through menu items to find "car".  A couple more movements and a company car is waiting for him as he exits the corporate housing building.  He gets in the car, and it speeds off to Nakitashi Plaza.
 
-…
+***
 
 11:01am stares at him through the glass of the meeting room walls. His hurried steps continue, throwing open the door, and huffing for air.  All eyes are on him.  Akio Nakitashi stands at the front of the room.  "Ah, just in time.  What do you have for us, Maximilian?"
 
@@ -90,7 +90,7 @@ Max pulls back, disengaging, breathing a deep solid breath. "How did you hear?  
 
 "Oh? Is this what you want?" Max says has he unbuttons Dominic's pants.
 
-…
+***
 
 Two naked bodies intertwined, sweat glistens off of their chests as deep breathing begins to slow, a lurid mixture of sweat and sex permeates the air.  With a heavy sigh, Dominic pulls himself free, become separate entities again.  He stands up, and walks to the bathroom, Max reaches out in vain to stop him. "Come back here."
 
@@ -106,7 +106,7 @@ He becomes lost in himself as the water ebbs and flows over his back, ears filli
 
 "Up for round two?"
 
-…
+***
 
 The exterior of Club Elysium has a mirror finish and no exterior lighting except the sign.  An orgy of colors swirl and dance above the building and over the street surrounding Elysium.  The reflections bath Dominic and Max is a multitude of hues.  The door is imperceptible, a thin etched line in the otherwise continuous mirrored facade.  As they approach the door, the light from the sign coalesces into concentrated beams  of magenta, either pupils scanned.
 
@@ -178,7 +178,7 @@ His fingers twiddle across his left wrist, typing out: "Can't, Max will suspect.
 
 Dominic returns back to the device sitting on his workbench, rescrewing the access cover, and flipping the switch on. A small puff of smoke rises quickly from the device, and he switches it off again.
 
-…
+***
 
 5am: An electrical signal from his implant stimulates his pituitary gland, beginning a slow increase of cortisol into his blood stream.  The bedroom is dark, but the cortisol speeds up his heart rate, increasing blood flow over his entire system, and his eyes shoot open.  He slips quietly out of bed, puts on his running gear, and slowly closes the door behind him.
 
@@ -663,7 +663,7 @@ He holds up a small cylinder with a glowing red socket on it.  "All except this 
 
 Simon appears in the doorway.  "Ms. Baune?  The leaders are requesting your presence in the board room.  They were monitoring that exchange.
 
-…
+***
 
 Vienne returns to her office, head hanging low, feet shuffling forward.  Her weight heavy as she falls back into her chair.  "Simon!"
 
@@ -873,7 +873,7 @@ She gets into the passenger seat, and Officer Jones gets into what used to be th
 
 "Well, Mr. Quinn, your desire to see the inside of the prison just might be granted today.  Central Processing," she barks to the autodrive system and the car lurches forward.  "But first, booking."
 
-…
+***
 
 She pulls him to his feet, hauling him out of the squad car.  Central Processing is a spire of a building, slender and impossibly tall.  The top ten floors are offices and the rest of the building is dedicated to the arrays of processors that run Nakitashi's core AI, the system that keeps the city running.
 
@@ -1109,7 +1109,7 @@ Levi is on his third day at the prison.  He has proven himself to be a capable, 
 
 "Perfect."
 
-…
+***
 
 Jameson's arms are held tight against Levi's waist as they speed down the road, the monotonous landscape of desert blurring as they sail through the evening air.  After an hour, Levi pulls off onto the side of the road, stopping the bike in a flourish of dust, swirling around them against the last evening sun.
 
@@ -1231,7 +1231,7 @@ Stunned from the fall, the officer grasps at the ground, trying to stand.  Domin
 
 She pulls up Maksimov's employee records.  His company badge photo is blurry, out of focus, and there is little details about his past.  Large chunks of his record are long black bars.  She does not have clearance.
 
-…
+***
 
 She is outside, smoking a nicostick, when the patrol car pulls to a stop in front of the prison.  Dominic is slumped against the window of the back seat, his face smushed up against the glass.  The driver steps out of the car.  "We have him, ma'am."
 
@@ -1752,7 +1752,7 @@ She nudges Simon awake.  His eyes half open, and he sits up, rubbing his eyes.  
 
 Vienne nods her head, eyes remaining on the road.  The road is solitary, the only car on the road.  Back in the sunlight, the car will go significantly faster, and they can drive until the sunsets and the battery runs down again.  They drive on in silence
 
-…
+***
 
 They pull to a stop in front of the commune dormitory as the sun finally dips below the horizon, the shadows long and deep across the flat parking lot.  "Remember, they have all taken a vow of silence and are sensitive to noises, so speak quietly, and try to avoid too much noise."  Simon nods his head listening to her words carefully.
 
@@ -1786,7 +1786,7 @@ He had been driving south before the Amphen withdrawal kicked in, through lush p
 
 The rumble of a 'copter begins to doppler in from the direction of Nakitashi.  It passes over head in a cacophony of sounds that sends knives through Levi's head.  He risks opening his eyes to watch it pass, the light searing his retinas.  "Fuck!" in elongated whispers.  The intense pain washing over his body is enough to cause his brain to decide enough is enough, and he passes out, arm draped over his eyes, the rest of him splayed out on the ground.
 
-…
+***
 
 The sun is setting in the sky, and something is poking Levi in the side.  Poke. Poke. Poke in slow intervals.  As his eyes adjust to the crimson and orange light in the sky, the face of a young boy begins to form out of the void.
 
@@ -1916,7 +1916,7 @@ Dominic's vision is muddled as he sits on the ground.  The door is open, left op
 
 "Vienne?" his last words before he loses consciousness.
 
-…
+***
 
 His awareness comes back before his connection to his body reestablishes itself.
 
@@ -2148,5 +2148,338 @@ She waves her hands around, "I own all this, before the commune moved in, I was 
 
 Max laughs an inaudible laugh, his stomach shaking.  "Good point."
 
-The woman takes a long drag on her nicostick, exhaling like the hiss of tire with a slow leak, the serpent's hiss to warn of impending trouble.
+The woman takes a long drag on her nicostick, exhaling like the hiss of a tire with a slow leak, the serpent's hiss to warn of impending trouble.
 
+# Ji
+
+Ji is piloting a small quad-rotor over a sea of sand that stretches as far as her eyes can see.  The reflection of the noonday sun on the sand causes her to squint, even through the electronic tint on the rotor's cockpit.  The dot on her nav system is getting closer and closer, but it looks like empty sand all around.
+
+She pulls back on the throttle lever and the altitude drops quickly, landing amidst a cloud of sand.  Pulling a bandana over her mouth and nose, she hops out of the vehicle.  A single tree stands, dead and withered, bleached white, a brilliant finger stretching to the heavens.  A small red button is embedded in the trunk, barely visible to an unexpected visitor.  She feels around for it, pressing it in when her fingers find it.
+
+The ground beneath her begins to rumble, the sand shaking, a thin line forming next to the tree and growing wider centimeter by centimeter.  The sand falls away, tumbling down stairs that are beginning to form.
+
+The rumbling stops, the stairs descending into darkness.  She begins to walk down them, shielding her eyes from the sun.  She feels each step with her foot before settling her weight down, transferring over to the foot, repeating the process down into the darkness.
+
+The stairwell ends in a wall and without warning causing her foot to kick the wall.  She reaches her hands out, feeling along the wall.
+
+"Goddamnit," she grouses to herself.  She turns around, feeling the sides of the stairwell, beginning to go back up.  Another wall closes off the stairwell, a reverberating thud throwing Ji into complete darkness.  She jumps, startled at the sound.
+
+Lights click on, bright and antiseptic.  She shuts her eyes tight, the sudden change of light causing pain behind her eyeballs.  A gruff, robotic voice booms through the small room, "State your business."
+
+"Ji Go, Silver Member of the WLF, Member Number 934-51-965013"
+
+"Please wait."  Anachronistic computing sounds are played over the hidden speaker, a series of beeps, boops, and bleeps designed to evoke progress is being made.  "Voice print verified, Welcome Member Go."
+
+The wall at the bottom of the stairwell begins to rumble and move to the side.  She taps her foot waiting for the slow motion of the ancient door to open wide enough for her to step through.  Unlike the newer phased-magnet doors, this one moves on a horizontal track, moved by permanent magnet motors, driven by a series of belts, pulleys and gears.
+
+When the door is finally open wide enough, she steps through into a hallway lined with holoprojectors and consoles, each one with a person sitting at it.  She walks passed all of them, each turning to stare at her as she passes, silent, and furiously typing on the keyboard, the sound of fingers clacking on keys is deafening.
+
+At the far end of the hall is another door, simple, and even older.  It is not automatic with a round knob sticking out of it.  She turns the knob, and pushes the door inside.  The room behind is pure white with an even light spread across it, making the corners near impossible to notice.  She has the sense of floating in an infinite white void when she enters the room and closes the door behind her.
+
+A black man sits in the center of the room.  He is a tall man with lanky limbs.  He is wearing an ash gray suit, cut trim to fit his thin frame.  He smiles when he sees Ji, revealing crystal white teeth, large, taking up all the space in his mouth.
+
+He stands, offering his hand.  She takes it, and he pulls her into an embrace.  "Ji, my dear."  His voice is soft and melodious.
+
+"Ramon, I wish I could say this wasn't a business visit, that we could spend the hours talking about something, anything else, but I'm here to ask a favor."
+
+"Mmm, I see, sit." He gestures to the couch where she found him.  "How can I help?"
+
+She lays out the details of the plan along with the background information about NewTek, Dominic, and Max's invention.  After she is done, he sits for a long time, in seeming meditation, processing all of the information Ji presented.
+
+"Mmhmm" after a full ten minutes.
+
+Ji fidgets in her seat, not wanting to disturb him.
+
+"Well, I think we can help."
+
+She jumps off the couch, "Thank you!"
+
+He stifles laughter, and motions for her to return to her seat.  "I will ensure you get the support you need from the WLF, but now, business is concluded, and now, friends discuss their lives and well being.
+
+They talk for another hour, exchanging life stories, talk of philosophy, and the recent rise of monastic orders.  Ji leaves feeling nourished.
+
+***
+
+Visiting Ramon always puts Ji's mind at easy, and she is confident and ready to execute this plan.  The quad is loaded up with infiltration suits for storming the Capitol Building.  She sets the nav system for the Medford Commune, releasing her hands from the controls.
+
+This quad is outfitted with a new waypoint nav system that Ramon's people installed while she was down in the bunker.  She bites on her nails, double checking the readings.  The heading is on track, all system read outs are within the nominal range.
+
+"Relax, Ji, the tech is new, but Ramon would not have ordered it installed if he did not trust it, and you trust him," her voice drowned in the chatter of the rotors.  She forces herself to settle into the seat, and close her eyes.  There won't be much time for sleep in the coming days.
+
+***
+
+The quad-rotor touches down amidst a sandstorm kicked up from the rotors.  The beeping on the console rouses Ji from her sleep.  She rubs her eyes, looking around.  The Medford Commune dormitory is in front of her.  The quad landed right next to the other quad.  The early morning sun just beginning to peak over the horizon.  She rubs her eyes, and jumps out of the quad, running to the door.
+
+The door is barred from the inside.  She knocks twice, tapping her foot.  She crosses one foot over the other, squirming in place.  She knocks three more times, pacing in quick turns.
+
+"Oh fuck it!" she runs over to a near by bush, pulls down her pants, and lets loose a stream of urine into the parched sand next to the bush.
+
+# Dominic
+
+He begins to wake up, his limbs not quite under his control still in the hold of his sleep.  Sun is glaring in from the open window, his vision awash in sunlight filtered through eyelids.  He flicks his eyes open, to an empty room.  Giving his eyes time to adjust, he blinks rapidly, eventually sitting up after some concentration.
+
+He takes a minute to muster the concentration to stand, his legs unstable under him.  With shuffling steps, he walks to the door, grasping the frame to steady himself.  He pushes the door open and steps into the hallway.
+
+Various unnamed people are milling about the hallway, each one dressed in dingy white uniforms, a mix between a chef's uniform and scrubs.  Each one is bare foot.  They stare at him as he pads down the hallway to the main lobby.
+
+The stairs prove to be difficult to navigate down, and he stumbles on the last few steps, catching himself on the railing.  The dining room off of the lobby is empty, save for Max, Vienne, and Simon.  They are deep in discussions with a map projecting into the space between them.  The soft hum of Vienne's holoprojector drones on as he approaches.
+
+He walks up behind them, unnoticed until he leans over to get a better view of the map, asking, "So, what's the plan?"
+
+All three of them look at him, eyes blinking, mouths agape.
+
+Simon is the first to speak, "All better then?"
+
+Dominic shakes his head.  His eyes rolls back into his head, eye lids fluttering as he is overcome with dizziness.  "Not exactly, but better."
+
+Max stands up, motioning to the chair he just vacated, and Dominic takes the queue, sitting down.  Max pulls up a chair from one of the other tables, and sits in it, flipping the back to face the table, resting his arms on the back of the chair.
+
+Ji looks around, and continues the conversation from between Dominic interrupted, "Like I was saying, Wolf will provide a hyperjet to get us into UCSA airspace as quickly as possible, and then we'll parachute onto the roof of the Capitol Building, here."  She places a marker on the map over the Capitol Building, "we'll do this all under the cover of night.  Radar invisible parachutes and body suits, all wolf provided."
+
+"And who is we?"  Simon asks.
+
+"Dominic, assuming he heals, and me.  Max and Vienne will be ready with the transmissions to broadcast the recordings once the cabinet has been secured."
+
+"And what will I be doing?" Simon again.
+
+Vienne strokes the side of his face, "looking pretty, dear."
+
+His eyes narrow at Vienne, "I'm not useless, you know."
+
+Ji interjects, "We know, but I'm not sure what your role will be yet."  She exchanges glances at Vienne.  "Since you don't have any specific training for the things we are doing."
+
+Simon exhales violently, and stands up, leaving the table and the room.
+
+"Simon!" Vienne calls after him.
+
+All eyes looking at the table, the silence awkward and thick with unsaid words.
+
+Dominic holds back a smile, "Maybe you should go after him?"
+
+Vienne eyes throws daggers at Dominic's face; she stands and runs after Simon.
+
+"Awkward." Dominic's voice an octave higher than normal, with long exaggerated syllables. 
+
+"Child." Max glares at Dominic.
+
+"Back to the plan, yeah?" Dominic turns to look at Ji.
+
+"No, that was pretty much it, after the cabinet is secure, we release the transmission of the evidence against the UCSA, along with the stream of the occupation of the cabinet members and Governess, claiming allegiance to the WLF, and demand the world council address what the UCSA has been doing." Ji spews.
+
+Dominic nods his head.  "When do we start?"
+
+"Shipment from wolf is expected to be here in the next few days, then it's wait until you are one hundred percent so we can execute properly.  I am relying on you to get us into the Capitol Building."
+
+Dominic nods, "Right, I've got it covered."
+
+Ji smiles, "I know, I've read your file from Vienne."
+
+Max stands up, helping Dominic to his feet, "Time for us to go… relax."
+
+"Nothing too strenuous, wouldn't want to risk Nic's recovery."
+
+Max slowly draws his fingers from the corners of his mouth to the center of his lower lip, tugging slightly, pulling his fingers away, "Don't worry, nothing too strenuous."
+
+# Vienne
+
+Vienne catches up with Simon, "Simon, wait," she pulls his arm with a tender touch, as he's about to exit the building.
+
+"What Vienne?  I'm useless, I might as well not be here."
+
+She pulls him into her and reaches under his shirt, running her fingers delicately across the ridges of his abs, "You aren't useless.  You are here to stay safe, so I have a reason to do this."
+
+"Isn't Nic your reason?"
+
+She snorts with laughter, "No, it's Nic's fault we are here, sure, but he's not my reason. I could have turned him in to Alexandrine, secured clemency for us."
+
+"You aren't making your case very convincingly."  He pushes her hands out from under his shirt, and crosses his arms over his chest.
+
+"It is simple. What would we do after that? No company would touch us after that scandal."
+
+"They aren't going to touch us now either."
+
+"But it won't matter.  A new form of organization will arise, a new serpent's head, and we'll need someone to be the figure head of that new head."
+
+"And I'll be the first whore to you as the new figurehead?"
+
+She wraps her arms around Simon, "No, I'll be the woman pulling the strings, you'll be the figurehead."
+
+He shakes his head, pushing her away. "So I'll be your talking dummy."
+
+"That's not what I meant," she pulls him close again, but he immediately pushes her off.  "Okay, go sulk, when you are ready to be an adult again, I'll be in the room."
+
+She turns around, leaving him framed in the doorway as she makes her way to the stairwell.  She hears the door slam shut behind him.
+
+# Levi
+
+Levi is in heaven.  The room he stands in is lined, floor to ceiling with weaponry and gadgets of every kind imaginable.  A small kiosk in the middle of the room blinks specs at him.  He presses on the picture of an ArmaLite AR-15 reissue.  This particular model is throwback to old rifles, but with modern technology running the insides.  It includes a DNA print safety system, laser sight, and friendly anti-fire to avoid friendly fire.
+
+When he presses on the vend button, a robotic arm extracts itself from the ceiling, slides along magnetic levitation rails.  It selects one of 10 ArmaLite AR-15s, retrieves it from the shelf, and deposits the weapon into Levi's hand.
+
+This dance continues as he arms himself with a bullet and stun proof vest, anti-puncture under garments in a shrink-wrapped package, and five grenades of varying types, some explosive, some stunning and obscuring.
+
+As he loads up the gear on his person and in a duffle bag also retrieved by the robotic assistant, Alexandrine enters the room, ducking the arm as it zooms passed her.
+
+"Finding everything to your liking, Mr. Kane?"
+
+He turns around, brandishing the AR-15 reissue with a half-cocked smile on his face.  "Oh yeah," his voice warbles with grit.
+
+"Excellent.  I've secured your hyperjet, it's on launch pad three, ready when you are."
+
+"Have you located Dr. Bosko?"
+
+"We believe so.  Satellite scans show a quad-rotor registered to Nakitashi in the middle portion of the northern west coast no man's land."
+
+"Just north of the great tunnel?"
+
+She nods, sending her curls bouncing.
+
+"And the order again?"
+
+"Capture Dr. Bosko, kill anyone helping him."
+
+Now it is his turn to nod.  "Understood, you prefer kill over capture for all other individuals?"
+
+She shrugs, "I guess whichever is easier."
+
+"You're the boss lady."
+
+She smiles brightly, "Yes, Yes I am."
+
+# Simon
+
+The room is dark.  Simon is sitting in the middle of the bed, naked, staring at the wall.  His eyes are vacant, his breathing slow and methodical.  His back is completely straight, and his hands are resting with a delicate touch on each of his thighs, upturned to the ceiling.  His feet are folded under him, and his thighs are pushing his scrotum up.
+
+His breathing sounds like the ocean as he lets his vocal cords relax but obstructs the airflow slightly. He sits, unmoving.
+
+Vienne opens the door, the light of the hallway placing a wide stripe of yellow light across his torso.  She closes the door with a silent deft movement, and walks into the room on eggshells.
+
+"Simon?  I'm sorry."
+
+He does not answer, continuing to stare at the wall.  She rolls her eyes, and stands between him and the wall.  His eyes blink back tears.
+
+"Simon, you do play a valuable role."  She places her hands in his upturned hands, as she sits down on the bed in front of him.  He flinches at the initial touch, and relaxes into the sensation of her hands.  Tears rolls down his cheek.
+
+"Talk to me, Simon."
+
+"Why don't I matter to you?" his words soft and delicate, lip trembling as they move to form the words.  She removes her hands as a response, standing up from the bed, adding distance between them.
+
+"If you didn't matter to me, I would have left you in NewTek City, I wouldn't be trying to keep you at my side, to keep you safe.  If you didn't matter, you'd be dead,"  her words cut like swords as she slings them out into the air.  He hangs his head, his response to her.
+
+"Snap out of it, you are just feeling sorry for yourself," she walks out the room, the door slamming behind her, reverberating in the door frame.
+
+# Ji
+
+Ji is sitting in the dining room with her face buried in broadcast operation manuals, with a blueprint of the Capitol Building spread out like a placemat under all her work.
+
+She feels a tap on the back of her shoulder, and her head pops up, looking at the woman who owns the commune.  Ji snaps, "What?"
+
+"You have no manners," the old woman says, her tone flat, disinterested, almost bored.
+
+"I know, I've heard that my whole life. Wait! You aren't supposed to talk."
+
+The woman shakes her head, sitting down across from Ji, "Didn't that pretty boy explain things to you? Anyway, I over heard your plans."
+
+"Oh, and now you want money to keep quiet?"
+
+"Your generation, always so paranoid and thinking the worst of people."
+
+"With good reason."
+
+"Sure, sure, I don't want any money.  I want you to stick it to those bastards."
+
+Ji laughs, "Alright granny."
+
+"Don't call me that, you little shit."
+
+"We'll stick it to them good and hard."
+
+"What can I do to help?"
+
+"I don't know, what can you do?"
+
+"I have a small stockpile of guns, you could take your pick, you and the boy with the head injury."
+
+"Guns? Really?"
+
+"We get the occasional marauders out here.  I usually fend them off, scavenge what I can.  They never expect it, never see it coming, but we're all pretty good fighters here."
+
+Ji shrugs, nodding her head.  "Thank you! Definitely useful."
+
+"Sure thing, we do have a doctor among the members.  Would you want your friend's head wound looked at?"
+
+"Sure, just send them up to his room."
+
+# Max
+
+The room is dark.  Dominic is fast asleep, laying naked above the covers.  Max can still taste him, as he sits up in bed next to his sleeping love, a book, one of the many romance novels from the lobby, in his hands.
+
+Max rolls his eyes, and drops the book on to the side table as he stands up from the bed.  His feet carry him without hurry across the room, to the window.  The sun hurts his eyes as he opens the blinds a crack, the warm beating heavy against the large wooden slats of the blinds.
+
+He watches a couple of children play with a ball in the sandy lot behind the dormitory, kicking it and shouting at each other.  He turns to look back at Dominic, who is lost in the darkness of the room, Max's pupils taking their time to adjust to the change in light.  He picks up his underwear from the floor, sliding them up his legs, and into place.  Grabbing his shirt, and pants, he finishes getting dressed
+
+He leans over Dominic to check on his breathing, and then walks to the door, opening it.  He is startled by two people standing on the other side of the door when it opens.  The old woman he met earlier, and an older gentleman, though younger than the woman, wearing spectacles, carrying a small black bag, a faded red cross on either side of the bag.  He towers above her.
+
+"Dr. Jarnes would like to have a look at Dominic's head," the woman mutters as she pushes her way into the room.
+
+"He's sleeping right now," Max follows them back into the room, rushing to pull the sheets up over Dominic's naked body.
+
+Dr Jarnes walks over to the bed, turning on the side lamp.  He puts his bag down on the bed, opening it with slow precise movements, pulling out a pair of gloves.  He slips them on with the same meticulous movements.  He motions in a circular motion, miming the flipping of a page.
+
+Together the woman and Max turn Dominic onto his side, propping him up against a pillow.  The sheets pull away, leaving his butt exposed as the doctor leans in, pulling up the bandage.  The doctor cleans the wound with rubbing alcohol, the sting waking Dominic up with a wince.
+
+A clean bandage reapplied, and Dr. Jarnes gives a thumbs up.  The woman and Dr. Jarnes leave the room, and Max helps Dominic settle back into bed.
+
+# Levi
+
+Hyperjets have never been Levi's preferred mode of transportation.  The moment of disorientation during the initial acceleration, and the subsequent deceleration  on landing causes him great distress, but it is required in this case.
+
+"Sedative now being administered," the computer voice intones in the headset.  A moment later, his eyes begin to flutter, his consciousness fading out.
+
+***
+
+Adrenaline courses through his veins, "Adrenaline dispensed, please allow a moment for your heart rate to return to normal before deplaning."  His eyes shoot open, heart racing heavy in his ears, alert.  He concentrations on relaxing his breathing and heart rate.  It takes him ten minutes for the adrenaline shot to work its way out of his system, and his heart rate to return to normal.
+
+"Heart rate within nominal range, release harness, thank you for flying Hyperjet."  Some engineers idea of a joke, he is sure of it.  The five point harness releases, and he falls forward, doubling over, his head spinning, bile creeping its way up his throat. He swallows hard, his adams apple bouncing.  Pushing his hands into the ground, with steady but cautious movements, he lifts himself to his feet.
+
+He opens the storage locker, removing the Armalite AR-15 reissue, and slings it over his shoulder, followed closely by the grenade sash.  The exit ramp from the jet extends down to the sandy ground, and he steps out into the bright sun.
+
+The commune dormitory is a middling building made of brick standing in a large expansive parking lot.  The ruins of other builds surround it, most worn down to the foundations.  The dormitory is an oasis in the concrete desert.
+
+Faces peer out of every window, as he exits the jet, gun drawn, and walks slowly towards the building.  An old Chinese woman stands at the front door, just outside of it, barring the way.
+
+As he approaches, she yells out, "We are a peaceful commune, violence is not tolerated within my domain."
+
+He raises his voice to match, "I'm not here for anyone but your guests."
+
+"My guests have sanctuary.  Violence will not be tolerated.  Remove yourself."
+
+He is closing the gap between them with increased vigor.  "Woman, I don't want to hurt you."
+
+"That won't be a problem, but I'm afraid, I can't promise you the same in return if you continue to approach."
+
+He pulls his gun up to his face, leveling the sights on the woman.  "I have permission to kill anyone who stands between me and Maximilian Bosko.  Do you hear me? Anyone!" he draws out the last word, adding extra syllables.
+
+With hidden movements, she is inside of the door, pulling a large leaver to the left of the door.  Metal shutters begin to close all around the perimeter of the building, barricading the building from the outside.  He runs to the front door, the shutters not engaged yet.
+
+He bangs on the glass, staring at the woman.  She smiles at him as Ji and Vienne take up flanking positions to her.  Levi takes aim, and lets a bullet loose.  The sound causes all three woman to jump as the shutter slams shut.
+
+Suddenly, the ground under him gives way, and he's falling, sliding with dirt, sand, and dust down a smooth metal chute.  It is a gentle slide, and he lands on his feet in a clear reinforced holding cell, small not quite enough room to lay down fully.  He bangs on the glass wall as the opening to the chute slams shut.
+
+# Simon
+
+Simon is wearing the white scrubs of the Commune members as he sits in the dining room.  Vienne, Ji, and the old woman are sitting across the table from him.
+
+"You want me to pretend to be a commune member, and go interrogate this mercenary?"
+
+All three of them nod their head, but Vienne is the one who speaks up, "He doesn't know who you are, it's the perfect job for you.  Go crush his balls, get information from him."
+
+"How do I do that? He's got guns!"
+
+"Demand he gives you the guns.  There is a double drawer for passing items.  Only one side can be opened at once.  No way he can use the gun when it's in the drawer. "
+
+"But what if he overpowers me?"
+
+"He won't, we'll put in some nerve gas that disrupts his ability to control his muscles before you go in there." The old woman pipes up, "Don't ask where that came from."
+
+Simon nods his head, "Okay, I guess I'll do this?" uncertainty seeps into his words, is visible on his face.
