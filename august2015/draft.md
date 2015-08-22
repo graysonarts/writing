@@ -2483,3 +2483,77 @@ All three of them nod their head, but Vienne is the one who speaks up, "He doesn
 "He won't, we'll put in some nerve gas that disrupts his ability to control his muscles before you go in there." The old woman pipes up, "Don't ask where that came from."
 
 Simon nods his head, "Okay, I guess I'll do this?" uncertainty seeps into his words, is visible on his face.
+
+# Levi
+
+Levi is leaning against the chute door when Simon enters the room.  "Just give me Maximilian Bosko, and I'll let your little cult live," voice deadpan, even, with contempt beginning to edge in to the words.
+
+Simon shakes his head, extending a finger out towards the gun slung over Levi's shoulder.  Then, he swings his arm to move the finger to the drawer, transforming his finger into a palm, pressing in on the drawer.
+
+It extends into the cell, pressing into Levi's stomach as it reaches across the cell.  Simon points at the gun again, with a flick of the wrist, his finger points to the drawer.
+
+"Not going to happen, you mute twig."
+
+Simon takes a piece of paper from his back pocket, with deliberate, slow movements, he unfolds the paper, contemplating the words on it.  He flips the paper around and bangs it against the glass.
+
+"Nerve gas?  Yeah, like you have nerve gas."
+
+Simon takes a second piece of paper from his front pocket, unfolding it faster than the last one, holding it between his thumb and index fingers at each corner of the paper, light pressure holds it long enough for Levi to read, and then it slips to the ground.  Simon turns around, and begins to walk out.
+
+The sound of the drawer banging closed stops Simon in his tracks.  He turns around, the drawer extended into the room.  Simon turns around, and approaches the drawer.  One eyebrow arches up as he peers into the drawer.  The Armalite AR-15 sits in the drawer.
+
+Levi holds up the clip, shaking it between his two fingers.  "You get the gun, but I keep the ammo."  Simon shrugs.  "What are you going to do to me?"  Simon shrugs again.  A hissing sound begins, soft at first, but building as a bluish-white gas begins to stream in from the ceiling.  Levi begins to bang on the glass as Simon pulls on a gas mask.
+
+"You fucker, you have no hon–"  and he hits the floor.  The gas stops with an abrupt woosh, as the air is evacuated, replaced with a fresh supply, and then the glass walls recede into the floor.
+
+Simon bends down, kicking the clip into the corner.  He grabs Levi's shoulder, and flips him onto his stomach.  Pulling his hands behind his back, Simon attaches MagCuffs™ to his wrists, and then attaches the wrists to the chute door.
+
+The sensor on the gas mask beeps three times, and Simon removes the mask.  He sits down in front of Levi, crosslegged and out of arm and leg reach.  Taking a small aerosol can from his other front pocket, he sprays Levi in the face, a purplish shiny powder covers his mouth and nose, and Levi's eyes snap open.
+
+"You fucking psycho!"  he thrashes against the MagCuffs™, legs kicking and flailing out from his body.  "I will murder you all now!"
+
+"Shut the fuck up. We can do this the hard way or the harder way. Or you can just cooperate, tell me what I want to know, and we stick you tied up back on that hyperjet, and send you somewhere, to God only knows where."
+
+"I'm a mercenary, what are you offering me?"
+
+"To… not be… tortured?" Simon questions.
+
+"You do not have that in you, little boy."
+
+Simon is up in the blink of an eye, rope around Levi's neck, tightening in small increments.  His hands tremble minutely, his teeth bared, salaciously close to Levi's ear.  Hot breath grazes across it.  "I have more in me than you know."
+
+The old woman steps out of the shadows, "And I'll do far worse than my disciple here."
+
+"Anzhi?" Levi's voice laced with confusion.
+
+"Yes, Levi."
+
+"You… I watched you die!"
+
+"There are many forms of Death, that was but one.  Now, tell me who sent you, and why you are bothering my guests."
+
+"UCSA Governess Alexandrine Brant.   Executive order to kill Dr Bosko, and everyone involved in his escape."
+
+Anzhi shakes her head, "I did not raise you to be an assassin, Levi Kane.  Consider your contract forfeit."
+
+Violent shaking of his head follows, "No, You know I can't, not the UCSA."
+
+"Simon, please excuse us, inform the others that Mr Kane has been neutralized as a threat."
+
+Simon nods, exiting up the stairs, closing the door behind him.
+
+"Cute kid, but he's not one of your disciples."
+
+She chuckles, "No, no he is not, but I think he would have strangled you quite well.  Now, Levi, you have a rare opportunity to take a moral high ground here, not an option mercenaries are ever afforded."
+
+"And what is that?"
+
+"Help us take down the UCSA.  Your Dr. Bosko developed a mind control device, and the UCSA is bent on having it for their own plans.  I fear for that."
+
+"Because you prefer good, old-fashioned brainwashing?"
+
+She crosses the room, and squats down in front of him.  Her hand traces a delicate line down the side of his face before she slaps him across the face, hard, sending his head to the end range of his neck's motion.  "You have your choices, either die here, or join us.  While I did not raise you to be an assassin, my mother raised me to be one.  You have one hour to decide."
+
+She stands, turning away from him, making her way to the door, "You always where my favorite pupil, Levi."  The door slams closed behind her.
+
+# Dominic
