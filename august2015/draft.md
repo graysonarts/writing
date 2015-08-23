@@ -2557,3 +2557,168 @@ She crosses the room, and squats down in front of him.  Her hand traces a delica
 She stands, turning away from him, making her way to the door, "You always where my favorite pupil, Levi."  The door slams closed behind her.
 
 # Dominic
+
+The glass cell is empty.  Dominic's forehead rests against it, feeling the cold seeping in from the ground.  The bandage is gone from his head, and the cold glass is invigorating.  "So… what happened to the mercenary?" He turns his head towards Vienne who is standing in the corner.  A shawl is wrapped around his shoulders, huddled against the cold of the room.
+
+"Anzhi wouldn't tell us much, but she persuaded him to join us, let him go, and he too the hyperjet, somewhere.  She's being cagy about it."
+
+"Can we trust him?  Can we trust her?"  Dominic's shoulders raise and lower.
+
+"What choice do we have?"  Vienne approaches him, taking his hands into her own.  "I'm glad your head is better."
+
+He laughs, "Yeah, pretty stupid, huh?"
+
+She tilts her head to one side and then the other, the corner of the left side of her mouth coming up into a smirk.  "It's cold down here, let's head up stairs."
+
+Dominic nods and follows her out the room and up the stairs.  When they enter the dining room, dinner is in full swing.  The dining room is overflowing with people in white scrubs, the clang of plates and dishes are the only sound in the room, but it is deafening.
+
+He scans the room for Max, but they have all taken to wearing the white scrubs, and the sea of white does not part to reveal Max.  "At least the food is good here." Dominic comments as they pick up a tray of food.  The plate is full of cheese-covered noodles, small elbow tubes, and a piece of meat, unidentifiable, but seasoned well.
+
+Dominic's words unleash a wave of eyes, all fixated on him.  He rolls his eyes, as they follow him, digging their stares into his skin.  He bangs his tray down on a table.  The three people sitting at the table pick up their trays, and move.  They keep their eyes on him as they transfer to another table.  Vienne joins him after a moment.
+
+"I'm getting really sick of this place."
+
+"As soon as the Hyperjet gets here, you'll be off."
+
+"Wasn't it supposed to be here by now?"
+
+# Ji
+
+The news feed running across Ji's holoprojector explodes over and over.  The news anchor is reading in a monotone voice, "A hyperjet, believed to be part of the terrorist organization, The WLF, has been shot down over the Mojave Desert.  It was believed to be heading to pick up members of the newly activate cell that is claiming responsibility for the bombing of Nakitashi Central Processing. "
+
+Ji's head hangs loosely from her neck as she listens.  When the report finishes, she palms the projector off, and stands up.  Her feet move with slow deliberation, sliding across the floor as she makes her way to the door.
+
+Down the hallway, and down the stairs, she enters the dining room, tunnel vision on the floor as she walks.
+
+She looks up as she crosses the threshold into the dining room.  Her voice loud, startling, "Team, meet me outside."  The dagger eyes settle onto her.  She extends the middle finger of both of her hands, waving them back and forth at the people in the dining room.  She turns around and exits out the backdoor.
+
+The evening is cold, winter is coming.  The wind blowing in from the north, bringing with it an icy chill that cuts through the thin material of the scrubs.  Ji's nipples stiffen and rub against the fabric as she walks out of the building, and settles onto one of the picnic tables.  She shivers as she waits.
+
+One by one, the team trickles out, with Simon being the last one out.  Max settles into Dominic's arms to stay warm, while Vienne pulls her shawl tighter around her.  Simon remains distant.
+
+Anzhi lingers in the doorway, smoking her nicostick, listening.
+
+"A hyperjet was shot down over the Mojave Desert.  I don't know if it was Levi's or the one that Wolf sent, but it means we need to change our plans.  I believe the next best thing is to drive."
+
+Vienne's eyes bulge, "Drive?  Are you crazy?"
+
+"It will be a hard road, but Dominic and I can do it."
+
+"And the marauders?"
+
+"We'll go on bikes, we can move faster than they can."
+
+"If they don't ambush you."
+
+"I have some nightsights, we can travel in the dark with no running lights.  The bikes are pretty silent, so we should be able to avoid them in the most dangerous areas."
+
+Vienne turns to Dominic, eyes pleading, "Don't do this, there has to be another way."
+
+Dominic shakes his head, "This is the only way.  Ji and I discussed it, we are doing it.  We leave in the morning."
+
+***
+
+Dust covered, and painted matte black, the two motorcycles are almost invisible against the early morning sky.  Ji is stuffing the last of her gear into the compartment under the seat.  A backpack is slung low across her back, bulging with food bars, and liters of water.  Her nightsight goggles are perched on top of the thin alloy helmet she is wearing.
+
+Dominic exits the building, his body sheathed in the black body suit, plates of armor covering vital organs, and androgenizing his nether regions.  The nightsight goggles over his eyes glow with a soft red glow.  He carries his backpack high against his shoulders, a rope coiled across the top.  He walks over to the bike, and swings his leg over it.
+
+"Ready?"  His words transmitted to her via a microphone attached to his throat, picking up the vibrations of his vocal cords and transmitting them to Ji's ear piece.  It lends a mechanical tone to his words.
+
+Ji nods, swinging her leg over and revving the motorcycle to a start.  The vibration between her legs sends a tingle up her spine.  Dominic takes his cue from her, revving his bike to life, and then take off down the road.
+
+# Dominic
+
+The road is long and monotonous, and after a day and night of hard riding the forest gives way to the desert expanse that is the middle of the continent.  This land uses to be verdant fields of wheat, corn, and soy, but those days are long since over.  Over farming and irrigation gave way to the destruction of the permaculture that sustained life in this area for so long.  That death turned it all into a desert wasteland, empty of life.
+
+And the desert stretches on forever.  They pull off the road, to the hollowed out shell of an old gas station.  Sand covers everything, but they pull into the station, pulling the motorcycles behind the one remaining wall of the station.  It is not much for protection from being seen, but will offer them adequate protection from the sun during the day.
+
+The sun is beginning to crest over the horizon.  Dominic switches the nightsight goggles to day mode, and the red fades into an amber filter.  "I'll take first watch, get some sleep."
+
+Ji nods, pulling a small bedroll from the back of her motorcycle as Dominic places a few sensors around the outside of the ruin.  "No jerking off while I'm sleeping, boy!" she shouts as she tightens the sleep mask over her eyes.
+
+Dominic settles in, small pistol in his hands, eyes alert.  As the sun rises fully above the horizon, the temperature begins to spike.  Even in the shade, he fears it is going to be uncomfortable hot.
+
+***
+
+The sun reaches its zenith.  Dominic looks at the read out on his suit, "115F", and he wipes the sweat from his brow.  He unzips the suit, pulling it down his torso, and ties the arms around his waist.  His second watch period is agonizing, a deadly combination of heat and exhaustion is beginning to take hold.  He stares out into the vast ocean of desert.  Visibility is shifting, the horizon to the north disappearing in a shroud of shimmering brown.
+
+He pulls out a pair of binoculars, a high tech pair with variable zoom, image enhancing capabilities, and the ability to view different energy types.  He whips him up to his eyes, and looks at where the horizon should be.  Monotone and churning, he catches the glimpse of a small cyclone amidst a larger storm system, and from what he can tell, it's heading directly for them.
+
+He shakes Ji awake, "there is a sandstorm heading right for us.  We need to move, quickly, let's get out of here."
+
+Ji jumps to action, packing her gear away before Dominic can even process the fact that she is awake and moving to quickly.  Moments later, they are on the bikes, zooming forward and away from the storm.  This path forces them off the road, onto the shifting sands of the open desert.
+
+It is a race against the storm.  The edge of the storm could be anywhere, but they need to make it to the edge to survive.  They push the bikes to their limit, engines close to red lining, having to make constant small adjustments as the sand moves under them, a dovetail of sand kicking up behind them.  Heart bounding and the vibration of the engines intensifying, the edge of the storm begins to appear in the distance.  Ji points at it, and Dominic nods his head.  The motorcycles will not go any faster, and the storm is closing in.
+
+The front of the storm rolls over them in a sudden surge, a cloud of dust and sand swallowing them whole.  Visibility is cut to zero, and Ji is nowhere to be seen.  He flips on infrared mode on his goggles, but the sand is warm, radiating infrared all around them.  He switches to radar mode, but the bikes and their suits are cloaked against radar.
+
+Ji is lost in the sea, but Dominic pushes on, driving forward, adjusting for the tug of the wind, pushing against his bike.  He knows the edge of the storm is near, if he can make it, he will survive, if not, the sand will take him.  His focus narrows to a laser, and he drives on.  After five agonizing minutes, the sand buffeting against his bare torso, like sharp, stinging insects by the millions, the sand wearing his skin raw, he breaks through the edge of the storm.  The winds die, and the sand settles, pushing further south.
+
+He pulls to a stop, breathing heavy through his face mask.  He rips the mask off, heaving breaths in and out.  He stares into the storm, waiting for a sign of Ji.  He calls out on the comm system, "Ji, Ji are you there?"
+
+He waits.  No answer.  "Ji? Please?" No answer.  The sun beats down on him, high in the sky, just passed the hottest part of the day.  The shimmer of the storm continues uninterrupted.  "Ji, I'm sorry, but I need to ride on, find shelter.  I'll turn on my beacon, so you can find me."  *I hope she got that message*.  He revs the engine, and rides on, the air rushing against him, cooling his skin nearly as fast as the sun is heating it.
+
+He turns the bike slightly north, hoping to reconnect with the road, if he has any hope of finding shelter for the rest of the day.  After half an hour, his wheels reconnect with broken concrete, back on firm ground, he accelerates.  Twenty more minutes, and he comes upon an old church, broken down and sun bleached, remnants of the stain glass windows are melting downward, frozen in a state, mid-melt, casting vivid pools of light onto the ground and the one remaining sandstone wall.
+
+He pulls the bike into the shade with great haste, cowering under the eaves of what is left of the roof, a splintered mess, once majestic wooden arches reaching up to the heavens.  He pulls his suit all the way off, and turns it inside out to dry off the sweat from the inside.  In the shade of the church, he sits on the sandy floor, his small white briefs soaked through with sweat.  From his backpack, he pulls a food bar out, and begins to eat it.  One a day is all he needs, but it does not keep his stomach from growling.
+
+He rummages through his gear in the bike seat, looking for the perimeter sensors.  *Fuck, I forgot to pick them up when we were fleeing the gas station* "I guess I'll just have to be lucky that no one sneaks up on me while I sleep."  He curls up under a blanket, trying his best to block out the light.  His mind drifts to oblivion as he falls fast asleep, body exhausted from the stress.
+
+***
+
+When he wakes, the night time has fully set in.  He checks his watch *four hours of sleep isn't so bad*  He pulls on the nightsight goggles, switching them to low-light mode.  The world bursts into red hues as the click on, and he looks around.  *All quiet*  He pulls his suit back on, a fine layer of salt having formed on the inside makes it easier to put on.  He reattaches the throat microphone, and switches the comm system on, "Ji?" But still no answer.
+
+Rolling the blanket up, stuffing it back into the seat, he readies himself for the next leg of the trip.  He pulls out one of the bottles of water, and takes a long drag before swinging his leg over the bike, and starting the engine.  A vulture is startled by the sound and flies into the sky.
+
+Pulling back onto the road, he begins to head east again, the road is long, straight, and unending.  *four more days through the desert*  He sighs heavily as he accelerates. *maybe I can make it three*  These motorcycles are high efficiency models with super-capacitive storage cells allowing him to drive almost uninterrupted through the night.  He will only need to stop to relieve himself and stretch.  He can drive flat out for four hours at a time at top speeds.
+
+Every hour blends into the next, the road stretches on and on, and he drives.  Eight hours from his embarking for the night, he pulls into a small town, most of the buildings have been razed to their foundations, with every tenth one still containing at least one wall.  Tents dot the area, with camp fires throwing long shadows across a small crowd of people.
+
+The largest fire contains an animal on a spit roast, spinning in languid rotations over the fire, a small boy manning the crank.  Dominic slows the motorcycle to a crawl, switching on stealth mode to cut as much noise as possible.  The motor's hum dies down immediately.  He crawls along the road, approaching with deathly silence until he is close enough to make out the group around the large fire.
+
+He slows to a stop, pulling the binoculars out if his backpack, training them on the large fire.  A stick breaks behind him, and a stun baton connects solidly on his back.  He falls to the ground, writhing before passing out.
+
+***
+
+The cold of the wet sand seeps into his unconscious mind, and the sounds of beating drums drive his mind awake.  He sits up, hands tied behind his back, stripped bare.  His eyes search the darkness, struggling to make shapes, discern anything in the pitch black of the night.  A slit of light appears, and grows wider.
+
+The light is eclipsed by the figure of a woman, breasts bare, thin material wraps around her waist, slung low, the back light making the material translucent, the curve of her legs a stark shadow against the fire light.  "Stand up."  Firm words but at the same time delicate.  He obeys.  "Outside."  She turns and walks outside, and he follows closely.
+
+There are eleven elders sitting on rocks arranged in a semi circle on the far side of the fire.  Five of the elders are men, each of distinct ethnicity.  The five women elders mirror the men.  The last elder lacks outward vestiges of gender, and all eleven are clothed in long flowing robes, dyed the color of blood, and covered in a fine layer of dust.
+
+Dominic eyes fall to rest on his motorcycle and backpack, laid on the ground near one of the tents.  A small boy is sifting through the food rations, holding it up, scrunching his nose at it, and putting it back in.  He watches the little boy, until one of the elders shifts in their seat.
+
+The non-gendered elder stands, crossing around the fire, and in front of Dominic.  "Outsider, you were caught sneaking around, dressed in assassin garb. What say you?"
+
+Dominic coughs, the fine dust of sand billows out of lungs and into the air, and then he speaks, "I am just traveling through."
+
+"Lies!" the elders scream in union.  The one who is confronting Dominic continues, "Your belongs were searched, the weapons are those of an assassin.  Why are you here?"
+
+"I'm just traveling through, I was caught in the sand storm, I was cautious because there are marauders, and I was not sure if you were friendly or not.  I mean no harm."
+
+"Lies!" the elders scream in union again.  "My brethren do not believe you."
+
+"What can I do to prove my innocence?"
+
+The elders confer among themselves for a moment, and then speak in unison, "Trial by combat."
+
+The non-gendered elder spreads their hands apart, "Beat our strongest combatant in hand-to-hand fighting, and we will consider your innocence a known truth."
+
+"Do I have a choice?"
+
+All of the elders shake their heads.  "No. Put him back until the morning.  The fight will happen at first light."  The woman who brought him out, leads him back to the tent, and pushes him down into the tent.
+
+She ducks in behind him, and grabs his wrists, spinning him around, and hooking the ropes that bind his hands onto a hook, anchoring him in place.  Her bare skin against his skin is hot, she leans in and whispers, "I believe you."  He feels a small piece of metal drop into his hands. "Take me with you," she pleads in hurried whispers, and she backs away from him, and out the tent.
+
+*Well, shit.*  He shifts the piece of metal around in his hands, a makeshift blade, and rough leather wrappings to make a handle.  He flips the blade to face out, and begins to work small back and forth motions with the blade against the rope.  The night is frigid and his naked body absorbs the cold readily, his body covered in goosebumps.  He continues to work the knife against the rope, making slow progress as the strands of the rope begin to fray, and pop.
+
+Finally, the rope pops fully apart, freeing his hands.  It has only been twenty minutes.  His best guess is he will need to wait for three hours before attempting his escape.  *Waiting sucks*  He sits in the cold, shivering, counting his breaths, trying to slow his heart rate.
+
+After three hours, he cracks open the tent flap, and snoops at the area outside of the tent.  The fire is nothing but embers, not enough to see well by.  *First order of business, goggles.* His clothes were piled next to the motorcycle when he was speaking to the elders, so he can only assume they are still there.  He steals out of the tent, and into the night air, colder than the tent.  *Second order of business, put on some fucking clothes.*
+
+He dashes over to where the motorcycle is, its outline visible from the glow of the embers, reflecting off of the black chrome of the wheels.  He gropes around for the goggles, fingers connecting and pulling them up and onto his face.  Switching them on, the camp comes into view.  Everyone is vacated, except the woman from earlier.  She is curled up, fast asleep, next to the tent where he was being held.  He slips his suit back on, gathering up the backpack.
+
+He approaches her, and places a hand on her shoulder, shaking softly, hand over her mouth to keep her from making a sound.  Her eyes snap open and meet his.  He puts a finger up to his lips, and then motions towards the bike.  She stands with graceful flourish, and follows him over to the bike.
+
+He pushes the motorcycle away from the fire pit, towards the road, with her trotting after him.  Once at the edge of town, he swings his leg over the motorcycle, mounting it like a horse, and then motions for her to join him.  She wraps the material around her waist a few times, hopping on the back, and wraps her hands around Dominic's waist, holding tight.  He starts the motorcycle, no longer in stealth mode.  The engine revs and echoes out across the valley.  He shifts it into gear, and zooms off.
+
