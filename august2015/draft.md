@@ -2722,3 +2722,157 @@ He approaches her, and places a hand on her shoulder, shaking softly, hand over 
 
 He pushes the motorcycle away from the fire pit, towards the road, with her trotting after him.  Once at the edge of town, he swings his leg over the motorcycle, mounting it like a horse, and then motions for her to join him.  She wraps the material around her waist a few times, hopping on the back, and wraps her hands around Dominic's waist, holding tight.  He starts the motorcycle, no longer in stealth mode.  The engine revs and echoes out across the valley.  He shifts it into gear, and zooms off.
 
+Her arms tighten around him as the speed of bike increases, pressing herself into him, shivering, the night air cutting through what little clothing she wears.  The night fades into dawn as they ride.  As the sun crests over the horizon, a series of small squat buildings rise with it.  He accelerates, heading into the middle of arrangement of buildings.
+
+Another small town, this time truly abandoned, no people, no sign of animal life, completely dead.  As they approach, he slows to a crawl, inching forward eyes darting around, scanning the terrain in all wavelengths.  No heat signatures, no signals, nothing.  He sighs a deep sigh, pulling the bike next to one of the buildings, this one says "bank" on it.  He dismounts the bike and walks over to the door, pulling on it.
+
+The door does not open, locked from the inside. Bending down to inspect the lock, he notices it is a completely mechanical lock, old, but well preserved.  As he ponders the lock, a rock hurls over his head, breaking the glass of the door, raining glass shards all over him.  The woman walks up, reaches into the building and unlocks the door.  She pulls it open and walks through.  Dominic's mouth agape, he watches her movements with detached amusement.
+
+"What? It was practical."
+
+Dominic nods, walking into the bank.  The lobby is modest, a local branch of some regional bank, teller windows line one wall, and the vault sits open behind it.  The formica and wood paneling of the building smells musky, but there is no dust.  This building has been sealed for a long time, a tomb of some unknown culture. Dominic draws his gun, surveying the lobby, advancing with slow measured steps to clear the room.
+
+"What's your name?" he calls to his traveling companion.
+
+"They call me Mags, thank you for rescuing me."
+
+Dominic shrugs, "You were going my way."
+
+"What do I call you?"
+
+"Sorry, my name is Dominic, or Nic if you prefer."
+
+"Are you really an assassin?"
+
+A half smile spreads across his face, "Not really. I hate killing people."
+
+"That's a shame."
+
+"Why?"  Before Dominic notices, she is at his throat with a shard of glass, pinning his gun arm to his side..
+
+"Because now this won't be any fun for me."
+
+She is strong, stronger than Dominic in raw strength.  "What in the actual fuck?"  Dominic does not struggle, waiting for the right time.
+
+"No hard feelings, doll-face; it's just business."  
+
+His motions are a series of staccato flashes of movement.  He drops weightless, the sudden impact rips him out of her grip, the shard of glass falling to the ground with the tinkling sounds of glass shattering on the marble floor.  His back hits the ground, descent slowed by her grip, spinning around, his legs sweep her legs out to the side, and she loses her footing, toppling on top of him.
+
+She punches him in the face, and he responds by wrapping his legs around her, using the leverage of his legs, he rams his forehead into her nose, the crunch of cartilage breaking, blood beginning to flow.  She reels falling over to the side, and Dominic is swinging off his backpack, as she is standing, readying for a charge at him.  *Fuck this*  He swings the gun up to take aim, but she is too fast, knocking him into the wall, his lungs evacuating.  He breaths in heavily as the gun is skidding across the floor.
+
+She lands another punch to his face, but the third one he is able to dodge and she punches the stone wall.  She leaves a smear of blood on the white wall, a mixture of their blood, some from his face, some from her knuckles which split open on the failed punch.  Dominic dodges the punch by sliding down and between her legs, rolling across his shoulders, making it to the gun.
+
+But she is on him in an instant, her knee pinning the hand holding the gun to the floor.  She drives her other knee between his legs.  The pain is hot and searing, his hand loosens on the gun.  She smiles.  "Fucking men."  He breaths deeply reasserting his hold on the gun as she tries to take it from him.
+
+She is prying his fingers up one by one, his legs flailing, his torso pinned by her weight.  He makes a wild swing with his free hand, but misses the connection.  The gun slides out of his grip as she frees it.  She places it between his eyes.  "Say good night, little boy."  She pulls the trigger.  Click.  She pulls it again.  Click.  "What the fuck?"
+
+Both hands free now, and with her confused, investigating the gun, he launches a counter attack.  A small sliver of glass is lodged in her leg now as she screams out in pain, the gun dropping to the ground.  He pulls his legs out from under her writhing mass, swoops up the gun, and levels it at her, returning the magazine into it's rightful place.  Keeping the gun trained on her, he walks over to his bag, and frees the rope, binding her hands behind her back, and anchoring them to her ankles.
+
+"Okay, Mags, talk."
+
+She spits in his face.  "Fuck you."
+
+He places the gun between her eyes, "Talk.  Who hired you?"
+
+"You aren't going to kill me, you already said you hate killing people."
+
+"Hate it, yes, I never said I haven't done it."
+
+"Not an assassin, huh?"
+
+"Not like you.  Talk!" spit flies out of his mouth, small droplets forming from his words, and landing on her face.
+
+She remains silent.
+
+"Don't make me do this, please?"
+
+She remains silent.
+
+"Fine."  He roughly picks her up, leading her to the vault.  He places her in the center of the vault.  Rows of safety deposit boxes line he perimeter of the room, all intact, unopened, containing treasures unknown.
+
+He swings the vault door closed, leaving her in the vault, alone.  He turns the wheel, engaging the bolts.  The keys to the vault are still attached, he removes one and puts it around his neck.
+
+*She can sleep it off in there; I'll be safe for the day.*
+
+He walks back to the lobby, pulls off his suit, and collapses onto the cold marble floor.  *two more days* floats through his head as he drifts off to sleep.
+
+***
+
+Banging sounds nudge Dominic from his slumber.  The evening is already upon him, and the banging sounds intensify.  *How did she get out of the ropes?* he ponders and he pads with bare feet over to the vault, stepping deliberately to avoid the broken glass.  He takes the key from around his neck, gun drawn, and inserts it into the vault mechanism.
+
+The pressure differential from the vault rushes passed his naked body as he spins the wheel and pulls the vault door open, leading the way with his gun.  She has her hands up as he gets sight of her; her eyes fix on the muzzle of the gun, the shard of glass sits on the ground, covered in blood, part of her wrap roughly torn and wrapped around the wound.
+
+"What?"  Dominic is cold, shivering from the air in the vault.
+
+"If you are going to kill me, just do it.  Don't leave me to die in this vault."
+
+Dominic tilts his head to the side, knitting his brow.  "You aren't leaving me much choice.  Who hired you?"
+
+"UCSA."
+
+"Governess Brant is pulling out all the stops."
+
+"She has spies everywhere, though I was expecting two of you."
+
+"So was I."
+
+She screws up her face, "What does that mean?"
+
+He shakes his head, "Nevermind."  He closes the vault door, relocking it.  She bangs on the door, words muffled beyond comprehension, and he walks back into the lobby.
+
+He pulls his suit on, the stretchy fabric caressing his weary body, pinning his morning wood tight against his pelvis.  He adjusts for comfort, and packs up his backpack, pulling a food bar out, nibbling on it, while thinking.
+
+He pulls a marker out from one of the side pockets, and exits the building.  Scrawling in large letters "She is in the vault" across the front of the building.  He goes back inside and inserts the key into the vault door.  Stowing the pen, and retrieving a couple of chemlight sticks, some ready-set epoxy, and a flare from the backpack.
+
+Back outside, he breaks the chemlights to activate them; he mixes the epoxy, coating each chemlight in a layer, and sticks them to the build exterior to illuminate the writing.  Backpack on, with the engine started, he shoots the flair into the air, and rides off east.  *best I can do*
+
+# Ji
+
+Ji emerges from the sand, gasping for air after she has cleared the sand.  One edge of the motorcycles handle bar is visible above the sand, the rest buried under the storm deposits.
+
+She dusts herself off, surveying the area as she does.  Empty sand stretches in all directions.  Using her hands as shovels, she begins to shovel the sand off of the head of the bike.  Progress is slow, the sand slipping through her hands.  The heat of the midday sun beats down on her as she continues the futile effort of digging the motorcycle out.
+
+An hour passes, and she is baking in her suit, but the headlight is now above the sand.  At this rate, she will fry her brains from heat before getting the bike out.  She pulls the backpack off of her back, searching in it for water.  She pulls the bottle out and takes a long swig. Reinserting the water, she pulls out a tarp, white and reflective on one side.  She huddles under it, a brief respite from the sun, she unzips her suit down to her navel and pulls it down around her waist.  Under the tarp, she begins to cool, enough to avoid heat exhaustion.
+
+*Wait until the sun starts to set* she reassures herself, settling in for a few tense hours of waiting.  The time passes imperceptibly for her, each minute stretching on into infinity. *Next time, pack cards.*  As slow as it is, the time passes and the light shifts under the tarp as the sun crosses the sky, headed to the horizon.  As the cool wind begins the blow in under the tarp, she throws it off, and continues digging.  The sun has long since set by the time she completely unearths the motorcycle.
+
+She inspects all of the intake ports, and digs sand out from them.  The last thing she needs is for trace amounts of sand to destroy the engine.  After thorough inspection, she starts the engine which purrs to life.  She sighs a deep sigh, her shoulders relaxing down her back.  She mounts the motorcycle from behind, throwing the backpack on to her back as she does, and accelerates.  *I know where he's headed, let's hope we both make it.*
+
+***
+
+Ji's night is uneventful, and as the sun is beginning to rise into her eyes, she pulls into a church, abandoned with one wall standing, and stained glass.  Motorcycle tracks lead from the road into the church ruins.  She approaches with caution, wary of the tracks, but as she rounds the corner of the wall, she sees the tracks continue off back onto the road.  She relaxes visibly, as she pulls in and dismounts the bike.  She inspects the ground, noticing the pattern of the disturbed sand, the pattern of a sleeping pad, and hasty movement.
+
+Etched into one corner of the sandstone wall is two simple letters, "Ji".  *Dominic* she thinks as she inspects the wall.  She activates her comm system, "Nic? Nic? are you out there?"  She waits, but no answer comes.  *Bugger, wish I had sprung for the more powerful transmitters.*
+
+The curls into a ball, and falls fast asleep, the day passes without incident, and she is back on the road at dusk.  Half way through the night, she is approaching the small tent town, the fire is raging in the center square, there is a large amount of activity around the fire.  She approaches lights on, not wanting to startle the town folks.  She rides up, engine roaring.  Two guards flank her as she nears the entrance to the encampment.
+
+"Stop! Who are you?"
+
+"I'm just traveling through, please let me pass."
+
+"We've had problems with people just traveling through."  The other guard yells.
+
+"I do not want trouble, and I do not ask for your hospitality, just let me drive through," she shouts in response.
+
+"Hey Vig, is that the same type of cycle the other traveler was riding?"
+
+"Dig, I do believe you are right."
+
+"Sorry, missy, you aren't going anywhere."
+
+Ji puts her hand on the pair of guns strapped to her legs on either side of her.  With precision, she pulls the guns, and lands two bullets, one between Vig's eyes, and the other through Dig's neck.  The shots ring out in unison across the town.  She redlines the engine and speeds through the tent city, knocking tents over, driving through a few of them, as she speeds through.  She hears the sound of engines turning over behind her, fading into silence as she speeds away.
+
+*Must keep going*
+
+She pulls back on the throttle some, taking the engine out of the red zone, and checks the temperature gauge, elevated, but still nominal.  She thanks the wind and the cool night air.  Her resolve reinvigorated by Vig's mention of the other traveler, a sure sign that Dominic made it out of the storm and is continuing onwards with the plan.  *Also, fuck you for not trying to find me, Nic*
+
+She rides on, stowing her helmet on the seat behind her, hooked onto the rear with the chin strap.  The cold evening air flows sharply through her hair, whipping it in cyclones behind her.  She rides on until the morning, but she lacks a place to sleep, no shelter can be seen for miles.  She knows she needs to push on until she finds a place to stop that will shade her from the sun, but her eyes are heavy, sleep wants to take her victim.
+
+Off to the side of the road, a good distance from the main road she spies an old farm house.  Like everything out here, it's a mere shell of its former self, but it will do, she turns the back off road, kicking a rainbow of sand behind her as she speeds to the house.  It is a small two story house, the floor of the second story mostly intact, she rides up.  She stashes the bike behind the dead and emaciated bush on the side of the house, and slips inside.  The inside is dark with a musky smell, the smell of decay, of bodies picked clean by carrion.
+
+She shakes her head, sitting down near the window frame, glass long since broken and discarded.  She leans her head against the wall, and falls asleep after images of her room at Nakitashi dances through her head.  She sleeps for only six hours, the sun nearing the horizon, but not quite there yet.  She packs quickly, and returns to the motorcycle, waking it in awkward circles to point it back to the road, away from the setting sun. 
+
+She has been back on the road for no more than an hour when a flair shoots up in the sky ahead of her.  She recognizes the signature magenta color of Nakitashi Road Flares, she lobbied for that color choice, after all.  *Nic? Please let that be Nic*  She kicks up the throttle, zooming towards the flares origin point.
+
+She pulls to a stop in front of the bank, the chemlight sticks stuck to the wall.  "Who is she?" *Did Nic leave this for me?  Whoever she is, why didn't he take her with him?*  She waffles for a moment, but continues to drive on, *Nic would have taken her if she was useful.*  She pushes on, hoping to catch him before the next sunrise.
+
