@@ -2876,3 +2876,146 @@ She has been back on the road for no more than an hour when a flair shoots up in
 
 She pulls to a stop in front of the bank, the chemlight sticks stuck to the wall.  "Who is she?" *Did Nic leave this for me?  Whoever she is, why didn't he take her with him?*  She waffles for a moment, but continues to drive on, *Nic would have taken her if she was useful.*  She pushes on, hoping to catch him before the next sunrise.
 
+# Vienne
+
+The compound is on lock down, again.  This is the third attempt by mercenaries to infiltrate the dormitory since Dominic and Ji left for their cross-continent trek.  Vienne is sitting in one of the underground bunkers.  This bunker was built during the height of nuclear proliferation, a time when people were scared of the color red, and half children were popular.
+
+The smooth steel of the bunker bounces the light from the holoprojector around.  She is monitoring the camera feeds on the outside of the building.  She and Max installed them after the shipment of supplies from the WLF arrived via carrier truck.  This wave of attack is much more direct than the last.  Three paramilitary soldiers ladened down with advanced weaponry are poised at the edge of the parking lot, scopes sweeping across the face of the building.
+
+The security shutters of the building have been drawn closed, reinforced metal slats linked together with forged hinges and chain.  It will take a tank to get into this building, and Vienne is hoping they do not figure it out.  Max is beside her, tinkering with a small device.  He holds a soldering iron in one hand, and some solder in another.  A thin trail of smoke rises up as he applies the iron and solder to the inside of the device.
+
+"Three's not so bad." She says after he puts the soldering iron down.  He pulls up his goggles, waiting for his eyes to adjust to far vision.  He looks at the holoprojector intently.
+
+"They have some mighty big guns."
+
+"Well, Let's hope the shutters hold."
+
+"Let's hope they don't get a tank next."
+
+Max goes back to concentrating on the device, and Vienne breaths out a deep, heavy sigh.  "I wonder how Nic and Ji are doing."
+
+Max places the soldering iron down with a slow deliberate movement, switching it off.  "Yeah, I'm worried, but if they are on track, we should hear from them in two days."  He holds up the device, a small gray sphere that screws together to hide the electronics inside.  "Done."
+
+"Really?"
+
+"Well, I think so, I would need to test it out on someone."
+
+"One of the commune members?"
+
+"I'd rather have a volunteer."
+
+"Does it work on animals?"
+
+Max shrugs, "it should.  Based on the design, I might need to make some adjustments, but I don't see why not."
+
+"One of the wild rabbits outside?"
+
+Max arches an eyebrow at her.
+
+"Oh, right, outside."  And Max nods his head. "Does it work over radio or loudspeaker?"
+
+"Brilliant thinking, Vienne, but it doesn't work like that.  It has to touch the person."
+
+"How was NewTek even going to use it after they stole it?"
+
+"Simple," he holds up his wrist, "free, mandatory implant upgrade."  She nods at him, understanding the diabolic nature of NewTek and the UCSA together.
+
+"I guess we'll need to wait until these mercs are bored and go home."
+
+Max nods his head in agreement, "Or we find a volunteer."  Max stands up, hooks his arm around the ladder and begins to climb out of the bunker.  "I'll convince someone."  Vienne smiles as he leaves and goes back to watching the holoprojector.
+
+# Simon
+
+Simon is sitting in his room on the bed, legs folded underneath him.  He is stripped down to his boxers, with one of the romance novels in his hand, eyes tracking the words across the page, engrossed and entranced by what he is reading.
+
+A knock sounds on the door, and he jumps in reaction.  It breaks him out of the book's spell, and he walks to the door.  Pulling it open, he smiles at Max on the other side of the door.  He turns around, and walks back into the room, waving his hand at Max, suggesting he come in.
+
+Max hesitates for a moment, and then proceeds into the room.  Simon returns to the bed, legs crossed, leaning forward towards Max as he emerges from the shallow entranceway.  Max shifts from foot to foot as he talks, fidgeting with his wedding ring, "The place is still surrounded, but I finished the device," he produces the sphere from behind his back.
+
+"And you got it working?"
+
+Max shrugs, tossing it onto the bed next to Simon.  "I haven't tested it yet.  I need a volunteer to be the test subject."
+
+"And you want me to be the test subject because I'm not really vital to the mission?"
+
+Max rubs the back of his neck, looking at the ground as he responds. "Not exactly.  I was hoping you'd talk to Anzhi and see if she was willing, or one of her disciples."
+
+Simon shakes his head, "No, just test it on me, it's fine."
+
+"Are you sure?" Max hesitates.
+
+Simon nods his head.  "Do it now, what's the worse that can happen?"
+
+"You might shit yourself." Simon shrugs in respond.
+
+"Okay," Max picks up the device, holding it in his left hand, he activates the small capacitive button, and the device begins the glow blue.  Holding it firmly, he touches it to Simon's stomach, a soft pressure against his abs.
+
+Simon's eyes go blank, his eyes defocus.  Max removes the device from against Simon's skin.  Simon remains motionless.
+
+"Simon, please stand up."  Simon obeys. "Simon, please sit down." Simon obeys. "Simon, please lay down on your stomach." Simon obeys. "Simon, raise your butt into the air."  Complete compliance, Simon obeys.
+
+Max thumbs off the device, the slight humming it was emitting dies down, and Simon blinks with rapid motions, and then he sits up.  "What happened?"
+
+"It worked.  Also, you have a really nice ass.  Vienne is one lucky woman."
+
+Simon blushes, looking away.
+
+"Don't worry, I didn't do anything scandalous, just had to make sure you weren't just faking compliance."  Simon nods.
+
+"Glad I didn't shit myself."
+
+"Me too.  Thanks, Simon"  Max hugs Simon, and walks out the door, leaving Simon alone.
+
+# Levi
+
+Levi's hyperjet was not shot down.  Governess Brant released reports of the hyperjet crash, all faked after Levi arrived at the Capitol Building.  He retold the plan that Ji concocted, gave her the travel plans, attack plans, and everything in between.
+
+Levi is relaxing in one of the many spa pods sprinkled through out the Capitol Building.  He floats naked in a pool of salt water, the sound of the outside world shut down, the only light a small, orange glow from the bottom of the pod.  The water churns around him.  The ever-present tension in his body is melting away moment by moment.
+
+There is a sharp rap on the spa pod that catches him off guard, water flowing into his mouth and down his throat.  He coughs and splutters as he palms the access latch open.  "Sorry to bother you, Mr Kane, but the Governess would like to see you now."  The woman in front of him is almost a clone of Governess Brant, thin, blonde, with bouncy curls.  She is holding out a towel towards him.
+
+He grabs the towel out of her hand and whips it around his body.  She turns in place with a click, click of her heels on the floor and against each other.  The clacking of her heels fades away as she walks out of the spa pod antichamber.  Levi dries himself off and pulls on his pants, grabbing his shirt as he stomps his way out of the room and into the hallway.  The people of the Capitol Building give side-long glances as he pounds his way down the hallway, shirtless and barefoot.
+
+He is pulling his shirt over his head as he walks into the Governess' chamber.  "What do you want?" his voice curt without a hint of friendliness to it.
+
+"Some respect to start with."
+
+"What do you want, Ma'am?"  No change in tone.
+
+"The commune is proving to be tricky.  We would like to send you back in."
+
+"They'll never buy that."
+
+"Your jet was struck down, but you saw it coming so you ejected, you've been working your way across the desert for the last three days."
+
+"No way I could get from Mojave to Medford in three days on foot."
+
+"They don't know that."
+
+"Ma'am, all due respect, but you are dealing with a bioenginer, a very strategic agent liaison, and a trained, extremely skilled mercenary.  They'll know I'm lying."
+
+"Okay, Mr mercenary, earn your keep then.  What do you do?"
+
+"Drop a bomb on the commune."
+
+"But all those innocent people?"
+
+"They are harboring known terrorists, Ma'am.  Terrorists who are planning to kidnap you and release damning evidence against the UCSA.  I call that justified civilian casualties."
+
+She nods and then shakes her head, "I can't authorize that."
+
+"Then they'll release their information, you'll get booted as the Governess, and the UCSA might fall.  Your call."
+
+"Then I'll go back out there, place strategic explosives around, and bring the building down."
+
+"That doesn't accomplish anything different from bombing."
+
+"Except now it's the actions of one man, unsanctioned, at least officially unsanctioned, instead of a military action against the commune."
+
+She nods, her enthusiasm increasing with each nod of her head.  "That works, let's make that happen."
+
+"I'll need a hyperjet, and enough C4 to blow up a city block."
+
+She types a few commands into her terminal, "Done, they'll be waiting for you outside."
+
+Levi nods, and walks out of the room, calling back to her as he closes the door, "And next time I'm in the spa pods, don't bother me."
