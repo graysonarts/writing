@@ -3019,3 +3019,109 @@ She nods, her enthusiasm increasing with each nod of her head.  "That works, let
 She types a few commands into her terminal, "Done, they'll be waiting for you outside."
 
 Levi nods, and walks out of the room, calling back to her as he closes the door, "And next time I'm in the spa pods, don't bother me."
+
+# Dominic
+
+Two days pass without incident, and without sign of Ji.  Dominic is beginning to lose hope, but he pushes on.  Half way through the third night, the landscape begins to change, green begins to pop up, intermittent at first, and thickening with each passing hour.
+
+By day break, the green sprouts into a forest.  He pulls off the road, the damp air clinging to his suit, the forest offering a cool breeze and the sound of rustling leaves.  Tossing his backpack to the ground, he stretches his arms towards the sky and unzips his suit down to his waist.  He pulls his arms out of the suit, and ties the suit arms around him.  He bends over at the waist, keeping his arms extending toward the sky.
+
+*I could make it to the Capitol by sunset if I push on, but, I could wait here until tomorrow's sunrise, wait for Ji.*
+
+He lets out a loud yawn; a bird flies off into the sky.  He stands up straight, and  turns towards the motorcycle.  Opening the seat hatch, he pulls out a one-time-use pup tent.  He presses the button on the side, and tosses it further away from the road.  With a rush of air, it expands, landing on a cloud of air, displacing the leaves.
+
+He pulls the last proximity sensor out of the hatch, and attaches it to the bike, pointing the sensor array towards the road.  He activates the sensor, and it begins to glow magenta.  He smiles at the color, shaking his head and muttering, "Max."  He bends down and crawls into the pup tent, sealing it up.
+
+The inside of the pup tent is small, just big enough for him to sprawl out on the ground.  He pulls his legs out of the suit, discarding it into the corner of the tent.  He stares up at the filtered light from the forest, the shadows playing games across the top of the tent, and he drifts off to sleep.
+
+***
+
+The proximity alarm is wailing, and the sound of feet crunching on gravel shoots like daggers through Dominic's ears.  He is awake, alert, listening.  Three set of feet is his best guess.  *Shit, I left the backpack outside.*  He looks at the suit in the corner, unsure how he would be able to get into it without alerting the intruders to his presence.
+
+*Element of surprise, only chance* He unzips the pup tent with slow control, timing the movements to the crescendo in the siren.  He looks through the tent flap.  Three men wearing bullet proof shirts, each carrying a small pistol.  They are advancing towards the tent.  *fuck*
+
+The center man calls out, "Come out with your hands up."
+
+*fuck*  Dominic exits the tent, putting his arms into the air immediately.  One of the men whistles.  "Do you have a license for that thing?" he asks, he appears to be the youngest member of this strike team.  The wind blows his messy dark blond hair around as he stares between Dominic's legs.  The man in the center of the group hits the young man on his shoulder with the back of his hand.
+
+"You are trespassing on Parks, Inc. property." The man in the middle pronounces.
+
+"I'm traveling through to Capitol City."
+
+"Do you have a traversal permit?"  The young one speaking up again.
+
+"I did not know I needed one.  First time to Capitol City."
+
+The middle officer shakes his head, lowering the gun, "Could you put some clothes on?"
+
+Dominic nods, and ducks into the tent, pulling out the suit, slipping his legs, one by one into the suit and pulling it up to his waist.  He ties the arms around his waist again.  "Sorry, I was sleeping, things happen."
+
+"You should continue on your way, there is a small outpost about four hours from here.  They can sell you a traversal permit, and offer you a nice place to stay.
+
+Dominic nods, "Thanks. Hey, I lost my traveling partner, a Chinese woman, if you see her, could you let her know I'll be waiting for her at the outpost."
+
+The young officer nods his head, "Sure, we'll send her your way."
+
+Dominic smiles at him, "Thanks.  Are you stationed at the outpost, officer?" he drags out the last word.
+
+"Montana, and yeah, we are, it's a ranger outpost."
+
+Dominic nods, "Well, I'll see you there, then, Officer Montana."
+
+Dominic gathers up the pup tent, finishes putting on his suit, and rides off down the road, towards the output.
+
+***
+
+The output is a small settlement of low faux log-cabin exteriors and Quonset hut interiors.  A holoprojector sign over one is emblazoned with "Ranger Station" over it.  Dominic pulls the bike to a stop in front of this one.  Jumping off the back of the bike, he walks into the station.
+
+A young woman, no more than eighteen years old sits behind a counter.  She has a small digital book in her hand, and when the chime of the door sounds, she perks her head up, smiling wide, "Welcome to Parks, Inc.  Ranger Station 159, My name is Samantha, how can I help you?"  Her voice is bubbling with charm.
+
+"Hi, Samantha, A few of your officers found me sleeping on the side of the road, and let me know that I needed a traversal permit.  Could you help me with that?  I need one for two people."  He matches her charm with an equally effervescent attitude.
+
+"Oh absolutely!"  She types into the terminal embedded in the counter, and the counter spits out a permit.  "Please scan your payment authorization."
+
+He places his wrist on the payment square.  The terminal dings, and she hands the pass to him.  "Anything else I can help you with?"
+
+"Officer Montana, he said there were some accommodations?  I lost my traveling companion while riding through the desert, sand storm, and I'm hoping to wait here until she shows up."
+
+At the mention of Montana's name, hey eyes sparkle with interest, "It is right across the parking lot, The sign is just a big 'H'".
+
+Dominic taps the permit book onto the counter twice.  "Thanks!"  He walks out the door, and across the parking lot.  The large "H" looms high about the log cabin.  He pulls open the door, a heavy wooden door, real not just a facade, and steps through.
+
+The inside of the "hotel" is what one would expect from a military barracks, rows out bunk beds line each side of the hut, and a center row splits it in two.  There is a small desk to the left of the entrance, and an ancient old man sits behind this one.  He wears an anachronistic ranger's uniform, khaki with a wide brimmed hat, with shorts and mid-calf length socks.
+
+"Sign in."  He hands Dominic a clipboard and a pen.  Dominic signs the paper, "Donald Freeman," and hands the clipboard back to the old man.
+
+"Pick anyone you want."
+
+Dominic walks to the back of the hut, and picks the one furthest from the door.  He tosses his backpack under the bed, and collapses into the soft, pillowy embrace of the bed.  Sleep overtakes him fast, the bed soothing his road weary body.
+
+***
+
+Dominic wakes to a shift in the weight distribution on the mattress.  Officer Montana is sitting on the edge of the bed, biting his finger nail.  Dominic sits up, smiling a large grin at Montana.  Montana opens his mouth to begin to speak, but Dominic places his finger over his own lip, motioning for silence.  Montana motions to the door which leads to the bathroom.
+
+They both stand up and walk into the bathroom.
+
+"Are you Dominic?"  Officer Montana begins.
+
+Dominic nods, closing the gap between them.  Montana responds by backing up, back hitting the wall with a light thud.  Dominic closes the gap again, "How do you know my name?"
+
+Montana breaths in a deep breath as Dominic pins him to the wall.  "I'm a member of wolf.  Ramon said the commune was under attack, and I'm supposed to report that you and Ji made it safely to the output."
+
+"Hopefully she makes it."  Dominic backs up a little, "Wolf huh?  And here I though my flirting worked."
+
+Montana reaches out and grabs Dominic by the front of his suit, pulling him in for a deep kiss.  "It did, but business first.  I need to contact Ramon and let him know that at least you made it."
+
+Dominic advances again, pushing Montana hard into the wall, "That can wait."  He grabs Montana's wrists and raises them over his head, landing another kiss, pressing his pelvis against Montana.
+
+A cough to the side startles them, the older officer from earlier is standing in the doorway, a disapproving look fixed on his face, "Montana, this is out of line."
+
+"Sir," he snaps to attention, "it's nothing, Sir."  He pushes Dominic off of him, reaching into his pants, and adjusting his boner to not be as obvious.  "I was just talking to our guest."
+
+"Officer Montana, I do not want to hear your explanations."
+
+Montana salutes, "Sir, yes, sir," and he runs out of the room.  
+
+"And you, you are a troublemaker.  I've got my eye on you, and if you do anything, just know I'll catch you.  Parks, Inc. does not tolerate shenanigans."
+
+Dominic stifles a laugh which earns him a look of hatred from the commanding officer.  "Yeah okay, well, I'm going back to sleep."  Dominic walks out of the bathroom, and back into his bed.  As he drifts off to sleep, his eyes fall onto Montana, and he smiles, falling into deep slumber.
