@@ -3042,7 +3042,7 @@ The proximity alarm is wailing, and the sound of feet crunching on gravel shoots
 
 The center man calls out, "Come out with your hands up."
 
-*fuck*  Dominic exits the tent, putting his arms into the air immediately.  One of the men whistles.  "Do you have a license for that thing?" he asks, he appears to be the youngest member of this strike team.  The wind blows his messy dark blond hair around as he stares between Dominic's legs.  The man in the center of the group hits the young man on his shoulder with the back of his hand.
+*fuck*  Dominic exits the tent, putting his arms into the air immediately.  One of the men whistles.  "Do you have a license for that thing?" he asks, he appears to be the youngest member of this strike team.  The wind blows his messy dark blond hair around as he stares between Dominic's legs.  Dominic and this officers eyes lock, a moment of recognition. The man in the center of the group hits the young man on his shoulder with the back of his hand.
 
 "You are trespassing on Parks, Inc. property." The man in the middle pronounces.
 
@@ -3104,19 +3104,19 @@ They both stand up and walk into the bathroom.
 
 "Are you Dominic?"  Officer Montana begins.
 
-Dominic nods, closing the gap between them.  Montana responds by backing up, back hitting the wall with a light thud.  Dominic closes the gap again, "How do you know my name?"
+Dominic nods, closing the gap between them.  Montana responds by backing up, back hitting the wall with a light thud.  Dominic closes the gap again, "And aren't you a performer at Club Elysium?"
 
-Montana breaths in a deep breath as Dominic pins him to the wall.  "I'm a member of wolf.  Ramon said the commune was under attack, and I'm supposed to report that you and Ji made it safely to the output."
+Montana breaths in a deep breath as Dominic pins him to the wall.  "I'm a member of wolf, so I'm whatever Ramon needs me to be.  Ramon said the commune was under attack, and I'm supposed to report that you and Ji made it safely to the outpost, so now I'm a deputy ranger."
 
-"Hopefully she makes it."  Dominic backs up a little, "Wolf huh?  And here I though my flirting worked."
+"Hopefully she makes it."  Dominic backs up a little, "Wolf huh?  And here I thought you were staring at my dick earlier."
 
-Montana reaches out and grabs Dominic by the front of his suit, pulling him in for a deep kiss.  "It did, but business first.  I need to contact Ramon and let him know that at least you made it."
+Montana reaches out and grabs Dominic by the front of his suit, pulling him in for a deep kiss, hand reaching down between Dominic's legs.  "I was, but business first.  I need to contact Ramon and let him know that at least you made it."
 
 Dominic advances again, pushing Montana hard into the wall, "That can wait."  He grabs Montana's wrists and raises them over his head, landing another kiss, pressing his pelvis against Montana.
 
 A cough to the side startles them, the older officer from earlier is standing in the doorway, a disapproving look fixed on his face, "Montana, this is out of line."
 
-"Sir," he snaps to attention, "it's nothing, Sir."  He pushes Dominic off of him, reaching into his pants, and adjusting his boner to not be as obvious.  "I was just talking to our guest."
+"Sir," he snaps to attention, "it's nothing, Sir."  He pushes Dominic off of him, reaching into his own pants, and adjusting his boner to not be as obvious.  "I was just talking to our guest."
 
 "Officer Montana, I do not want to hear your explanations."
 
@@ -3125,3 +3125,150 @@ Montana salutes, "Sir, yes, sir," and he runs out of the room.
 "And you, you are a troublemaker.  I've got my eye on you, and if you do anything, just know I'll catch you.  Parks, Inc. does not tolerate shenanigans."
 
 Dominic stifles a laugh which earns him a look of hatred from the commanding officer.  "Yeah okay, well, I'm going back to sleep."  Dominic walks out of the bathroom, and back into his bed.  As he drifts off to sleep, his eyes fall onto Montana, and he smiles, falling into deep slumber.
+
+# Max
+
+Max rereads the message. "Dominic at outpost, no sign of Ji, yet, still hope."  Tears are streaming down from his eyes in a constant flow.  He looks around at Vienne and Simon, crowded into the small bunker under the commune.  The air is damp with sweat.
+
+"See, we knew he would be fine."  Vienne puts a hand on his shoulder, smiling a warm, motherly smile.  "You just needed to have faith in him."
+
+Max nods his head and stands up.  "And now, we need to get the hell out of this commune, get on the road."
+
+Simon nods in vigorous agreement.  "Yes, let's just get out of here, the longer we stay, the more danger everyone is in."
+
+Vienne checks the security camera feeds, "It looks quiet, maybe they have given up?"
+
+Max opens the hatch to the bunker and climbs out of it, breathing the cool air slipping in from under the security shutters.  Anzhi watches the other two ascend out of the bunker.  "Time to go?"
+
+Max nods, "yes, we need to get into a car, and just go, fast, away from here.  We've put your people in danger for long enough."
+
+"There is a tunnel, it leads out and away from here.  I have an emergency response vehicle stashed as a getaway at the end of the tunnel.  It is bullet proof, mostly.  And it's fast."  She tosses Max the keys, "It's yours."
+
+Max gives Anzhi a hug, arms wrapped tight, enveloping her in his arms, swallowing her whole.  After a moment, her arms struggle against him, pushing herself free, breathing in sharply.  "Down boy."
+
+Max cocks a half smile her direction, and turns to Vienne and Simon.  "Let's go!"
+
+***
+
+At the end of the tunnel is an armored personal carrier.  Max whistles an echoey flick when they turn the corner and see the tank.  It is missing a vital piece, the back door, but looks functional regardless.  "Shall we?"  Max motions to the tank with large, sweeping arm motions like a game-show hostess revealing a new car.
+
+Vienne climbs into the interior of the tank first, with Simon following her, and Max taking up the driver's seat.  Key in the ignition, Max turns the engine over, and it roars to life, a deafening sound in the confines of the tunnel.  Putting it into gear, Max increases the throttle a small amount, and the tank lurches forward, breaking through the ivy growing over the opening of the tunnel.
+
+Once clear of the tunnel, he increases the throttle to maximum in one smooth motion.  The tank gains speed in small spurts, and by the time the treads hit the road proper, they are speeding down the road, heading towards the desert.
+
+"Can we do the broadcast from this thing?  Simon yells over the roar of the engine.
+
+Vienne nods her head in response, shouting equally loud, "The broadcast is going to come from the wolf facility, we just are managing the satellite relays."
+
+Simon nods his head.  Max is focused entirely on the road, the lush green of the coast fading into bleak yellow and white as the desert begins to take hold.
+
+***
+
+Two hours pass, and Max is relaxed behind the controls of the tank, consulting a map as he drives straight on the never ending road.  He shouts to the back, swinging the map's holoprojector lens so that Vienne can view the map also, "What if we head south, down towards The Wall City?  It would keep us out of strong UCSA territory, and The Wall City isn't too keen on the UCSA either."
+
+Vienne nods in agreement, "Yes, sounds good, let's do it."
+
+Max turns the controls sharply as the cross road zooms up, turning to the south, heading towards The Wall City.
+
+# Ji
+
+Ji pulls her bike to a stop in front of the Parks, Inc. ranger station, whipping her helmet off and shaking the road dirt out of her hair.  Goggles removed, she walks bow-legged into the ranger station.  Officer Montana is sitting behind the counter, head resting heavily on his face, squishing his cheek up into his eye.  He swings his eyes up from the magazine he is reading and looks at Ji.
+
+He looks around, confident that no one is around, "Ji?"
+
+She nods, "Riley?"  He nods in return.  "And Nic?"
+
+"Great lay," he smiles, but she narrows her eyes at him.  "Uhm, he's in the barracks, across the lot."
+
+She turns around and exits the station, sprinting across the parking lot and into the barracks.  Dominic is laying down on his cot wearing a Parks, Inc. tee shirt, and a pair of boxers.  He is smoking a nicostick, and reading an outdated magazine of current affairs.  "I'll be the first to say, you are a sight for sore eyes, cocksucker."  She stomps up to him, pulling him out of bed and into a hug.
+
+When the embrace is over, he stares at her, "I thought I would never see you again.  Mission first, through, right?"
+
+She nods, "Damn right.  Any news?"
+
+"The commune was attacked by UCSA, V, M, S left in an armored something, and last update was that they were heading for The Wall City."
+
+She nods, "Operation is still a go, then?"
+
+"Absolutely, after a night's rest for you.  You had to have ridden hard."
+
+"Nonstop, I'm exhausted, and dirty."
+
+"Showers are over there, though, they are co-ed, just a warning."
+
+"Is that where you and Riley?"  She motions with her hands, fingers made into bunnies, banging them together.
+
+"Who is Riley?"
+
+"Riley Montana?"
+
+"Ooooh!" he smiles, "maybe."
+
+"Whore." She punches him in the shoulder, and he falls over onto his bed.
+
+He shrugs as he stands back up, "Go shower, you stink, road ick."
+
+"Yeah, yeah." She drops her backpack next to his feet, and walks into the shower.
+
+She pulls off the suit, layers of sweat sticking the suit to her skin.  She winces as she detaches the suit from herself.  Naked, she tiptoes to the closest shower stall and slips in, pulling the shower closed behind her.  The water is warm; it soothes her aching muscles, weary from the long hours on the bike.  The water rushes over her head, trickling down the back, tracing the curves of her butt down to her legs, and rejoining the rest of the water as it travels down the drain.
+
+The pressure of the water jet massages into her, and she sighs deeply, breathing in some water mist, causing a violent coughing fit.  Her entire body shaking as she tries to extricate the water from her lungs.
+
+***
+
+Fresh and clean from the shower, Ji wraps a towel around herself, and walks out into the barracks.  All of the rangers are milling about, having just returned from their patrols.  Dominic is fast asleep among the commotion of the returning rangers.  One of the them whistles up and down as Ji walks in.  Her eyes cut deep slashes into his face, "Grow the fuck up. Or have you never seen a woman before?"
+
+The whistler is a younger man with dark skin, short cropped hair, and a slight build, she approaches him, towering over his reclining figure, "Disgraceful." She spits on him.  He jumps on, fists flaring, but she lands a solid hit to his stomach before he can react, and he doubles over, gasping to catch his breath.  She bends down, whispering into his ear, "Don't fuck with me, little man. I will put you down." Long emphasis on "down."
+
+His eyes are filled with tears as he looks up at her.  She turns around, and goes back to where her backpack is splayed out on the ground.  She digs in it for the thin shorts she brought with her for sleeping.  Pulling them on under the towel, she goes back into the bathroom, hanging up the towel, and returning to the room, breasts exposed.  She lays down on the bed next to where Dominic is sleeping.  A silence covers the room, rangers exchanging awkward glances at each other.
+
+She closes her eyes, and in a strong voice laced with authority, "Have you never seen breasts before?"
+
+# Simon
+
+Simon is driving when they reach The Wall City.  The gates are closed because it is well passed midnight when they arrive.  The Wall runs the entire length of the continent from ocean to ocean demarcating UCSA controlled corporate states from the independent commonwealth corporations.
+
+The Wall was built in a time of great unrest that led up to the fall of the old government when nationalism ran high, and elected officials ran on platforms of xenophobia and hatred.  Its original purpose was to protect the border of the country, a boondoggle that bankrupted every government agency involved.  Historians claim The Wall is the ultimate cause for the downfall of the government and the rise of the UCSA in its place.
+
+The Wall City is the single access point for the entire wall, a neutral zone built from necessity and flourishing as a nexus of trade and commerce, but the Wall is closed, so Simon shuts down the engine.  He presses his palm into Vienne's shoulder and shakes, "Vienne? Is there a way to request access to the city?"
+
+She snorts and moans as she is pried back into the real world.  "What?" she wipes drool from the side of her cheek.  "No, we'll just have to sleep it off." She falls back asleep.
+
+Simon opens the door, and hops out of the tank.  Pulling his hands over his head, he reaches to the sky, elongating his spine, cracking that echoes across the desert, bouncing off the metal flashing of The wall.  He walks around the tank in circles, staring off into the sky.
+
+When he rounds the back of the tank again, Max is sitting up on the edge of the tank.  Simon waves and walks over to him.  In hushed whispers, "Can't sleep?"
+
+Max shakes his head, pushing his boner down, trying to hide it, "I'm preoccupied."
+
+Simon blushes, and turns away.  "You'll see Nic soon enough."
+
+Breathing in a heavy breath, "yeah, but that doesn't really help me right this moment."  Simon gives him a side-long glance.
+
+"I'm with Vienne."
+
+"For fuck's sake, Simon, I wasn't asking you to do anything."
+
+"Oh…  Why not?"
+
+"What?"
+
+"Nothing."
+
+"You know, Simon, most straight guys would assert their straightness as a defense against untoward advances."
+
+"You make assumptions."
+
+Max nods, "Really now?  I guess Vienne does have a type."
+
+Simon looks down at the ground, quiet, reflective.
+
+"Don't worry, your secret is safe with me."
+
+"It's not a secret, Vienne knows."
+
+Max wrinkles his brow in response, and looks away.
+
+"Anyway, since we are camped for the night, I'm going to climb in back here and go to sleep, if you want to have a wank, go to the front of the tank, can't see anything from up there.  Unless the Wall has security cameras."
+
+Simon climbs over Max and into the back of the tank, he curls his body around Vienne's and falls asleep.
+
