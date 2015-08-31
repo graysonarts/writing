@@ -683,6 +683,60 @@ She types in a secure message, encrypting with her personal key, hoping Dominic 
 
 She raises her head from the desk.  A glass of gin and tonic sits on the corner.  *Such a silent kid*
 
+# Simon
+
+Simon's apartment is tiny, a one room efficiency model with a shared bath at the end of the hall, and a kitchen one floor down.  He stands in the middle of the room, legs bend at a shallow angle, arms stretching out to his side.  He moves with steady concentration, spiraling his arms into a ball, and releasing the ball forward as he shifts his weight to the front leg, deepening the bend of that leg while straightening out the back leg.  Reversing the weight on his legs again, wiping the hair of an imaginary horse.
+
+He continues his movement for the better part of half an hour, sweat drips off his exposed torso, as the tension of his muscles build while he continues the slow movements.  When finished, he bows a deep bow and grabs his towel, wiping the sweat from his chest.
+
+The holoprojector chimes, and Vienne appears on the screen, the answer functionality modified to always immediately answer when Vienne calls.  "Simon, have you located the agent to use?"
+
+Simon shakes his head, throwing the towel onto the thin foam mattress in one corner of the room, his excuse for a bed.  "All of the our usual agents are unavailable.  I have one that is an unknown quantity for us, Madame, ex-military, New Cascadia, Levi kane."
+
+"Any Lexus data on him?"
+
+"Spotty, only his military history, some high rank, went dark after NC fell."
+
+"Just use him then, I don't care, hopefully he's not great."
+
+He nods his head, "I'll send over our standard pre-hire contract for him to sign, and setup a meeting.  Anything else madame?"
+
+She pauses for a moment, "Back up a little."
+
+"Madame?"
+
+"Back up, go stand against the wall."
+
+He compiles, "Like this, Madame?"
+
+"Yes, just like that, now turn around."
+
+He turns slowly around, her eyes taking in all of him.  "Simon, your apartment is awful.  Give up that piece of shit, and come live with me in the corporate estates.  I have plenty of room, and there could be benefits, if you are interested."
+
+Simon blushes, stepping away from the wall, back into the normal usage range of the holoprojectors, "What kind of benefits?"
+
+She sighs, "I should hope I do not need to spell out that I mean."
+
+Simon's brow knits, and then comprehension dawns on him, and he opens his mouth wide, "Oooooh."
+
+She nods, "No pressure, but the things I could do to that tight little body of yours."
+
+Simon looks down at his feet, and then back up at her, "The corporate estates?"
+
+"I have a pool, and a hot tub, and clothing is always optional."
+
+Simon nods, "And I would save alot of money by not having to rent this place."
+
+"Right, a fringe benefit."
+
+"When would you like me?"
+
+"Tonight, right now."
+
+Simon smirks, and nods, "Let me pack my stuff."
+
+"Leave it, I'll buy you new whatever you want."
+
 # Ji
 
 *fuck fuck fuck* Two guards in crisp black uniforms, with short, cylindrical caps, and the Nakitashi Security Force logo, a stylized shield with a snake on it, in black ink, on their breast pockets.  Between them, they carry a gurney, Max sprawled out, arms dangling, legs slightly akimbo.
@@ -1531,6 +1585,44 @@ She pulls out a key card with a small metal square on it and veins radiating out
 The small, bluish light of the recharging station looms ahead of the car, and Simon pulls into the station.  Vienne jumps out of the backseat, running to the station's control panel.  She inserts the key card, and presses the large red button.  The tunnel becomes ablaze with aggressive floor lights, flickering on in all directions.  The smooth-bored walls, around up around them.  The emergency lights are embedded within the upper crest of the tunnel, shining down.
 
 Simon exits the car, noticing figures in the distance scurrying away into holes and doorways hidden from the main channel of the tunnel.  He pulls the charging cable from the hood of the car, and attaches it to the charger.  He passes his wrist over the scanner, and punches in "Fast charge, Maximum Power".  The device calculates the price and displays it.  He shakes his head, and hit the "go" button.
+
+***
+
+Back on the road, the security lights deactivated when they left the station, the long dark traverse of the tunnel is dotted with small electric lights on encampments of the scavengers who live in the tunnel.  They are not typically aggressive, just opportunistic.  A broken down car, taking too long at a recharge station, and they'll pounce, but when in motion, it is safe.
+
+Except when it is not.  There is a bang that echoes across the tunnel, and the car swerves as the front passenger side tire gives way.  Simon struggles to maintain control of the car, avoiding colliding into the wall.  The car comes to a screeching, sparking halt within a foot of the wall.  Heart pounding out of his chest, Simon grabs the gun stashed under the driver's seat.
+
+"Stay in the car, V, I'll handle this.  Turn on the emergency lights once I'm out of the car."  He opens the door with slow movements, minimizing the sound, the gun pointing in the direction of his movement at the end of out stretched arms.  He cross in front of the car, peering out at the passenger side tire, inspecting it.  The rubber has been ripped away, leaving a bare rim against the pavement of the tunnel floor.
+
+He waits for the tunnel emergency lights to come on, looking with expectant eyes at Vienne, who is shrugging the messing with her communication implant.
+
+Simon's feet come out from under him as something wraps around his legs from under the car.  He manages to keep a hold of the gun, but something is dragging him under the car with slow lurching motions.  The darkness digs into him, hands pawing at his feet, his legs, and he is dragged under the car.  He kicks with violent desperation at what is under the car.
+
+Skittering, clicking sounds crescendo around him, the language of the scavengers defies the normal language sounds his ears are used to hearing, and it is frightening.  The hands are up to his waist, grasping and pulling, the movement speeding up.  He braces himself against the bumper, gaining a small amount of ground against the hands.
+
+Vienne is banging on the glass of the car, but the hands continue to pull him further under the car, what little ground he had gained against them is lost.  With desperate fingers, he unbuckles his belt, unlatching his pants.  The hands pull harder, dislodging his shoes from the bottom of his feet, and slipping out of his pants, away from the car.  The hissing and clicking becomes deafening, and he fires the gun into the air as Vienne manages to get the emergency lights on.
+
+The lights flood the tunnel with a yellow glow, for a brief moment the scene is frozen in the flash of light.  Naked, emaciated and pale, a horde of scavengers surround the car.  Their eyes are milky white, adapted to the dark, unable to handle the full force of the light.
+
+The brief moment is over, and in chorus, the scavengers begin screaming, and clutching their eyes.  The two men who are near Simon reach out to try to reestablish control over him, but they are blinded as their eyes are adjusting to the light, and Simon can see, enabling him to dodge their grasps.  He kicks one dead center of his chest, causing the scavenger to fall to the ground, and a second one trips over the first.
+
+Simon takes this moment to reach under the passenger tire and activate the emergency flat.  It balloons out from the rim, leveling the car.  Simon jumps across the hood of the car, sliding across it, and into the drivers seat.  He slams the throttle to maximum, and the car lurches forward, knocking three scavengers off to the side.  In the rearview mirror, two of them are curled in a ball, tugging equally on Simon's pants.
+
+As they drive on, and the scavengers fade into the distance, Simon's heart returns to its normal rhythm, and he exhales for a full minute.  "Holy fuck."
+
+"Tunnel casualty: one pair of designer jeans."
+
+"It could have been worse."
+
+Vienne grabs his hand, pulling it into her, "but it wasn't."  She leans in and kisses him on the neck, and then the cheek.  "might have saved the pants if I could have typed the code right."
+
+Simon laughs, "That's what took so long."
+
+She releases his hand, allowing her hand to fall with controlled grace onto his leg.  Her fingers dance along the golden brown of his legs, the hair on his thigh spares, as she runs her hands up towards his crotch.  He stops her hand as her fingers are beginning to work their way under the fabric of his underwear.  He pushes her hand back down his leg, "I'm driving.  We don't need another run in with the scavengers by wrecking the car."
+
+She shifts back into her seat, folding her arms across her chest, "Yeah okay, but when we stop for the night, I'm going to wreck you, hard."
+
+Simon blushes.
 
 # Ji
 
@@ -2484,7 +2576,7 @@ All three of them nod their head, but Vienne is the one who speaks up, "He doesn
 
 Simon nods his head, "Okay, I guess I'll do this?" uncertainty seeps into his words, is visible on his face.
 
-# Levi
+***
 
 Levi is leaning against the chute door when Simon enters the room.  "Just give me Maximilian Bosko, and I'll let your little cult live," voice deadpan, even, with contempt beginning to edge in to the words.
 
@@ -2519,6 +2611,8 @@ The sensor on the gas mask beeps three times, and Simon removes the mask.  He si
 "To… not be… tortured?" Simon questions.
 
 "You do not have that in you, little boy."
+
+# Levi
 
 Simon is up in the blink of an eye, rope around Levi's neck, tightening in small increments.  His hands tremble minutely, his teeth bared, salaciously close to Levi's ear.  Hot breath grazes across it.  "I have more in me than you know."
 
@@ -3272,3 +3366,390 @@ Max wrinkles his brow in response, and looks away.
 
 Simon climbs over Max and into the back of the tank, he curls his body around Vienne's and falls asleep.
 
+# Levi
+
+Levi a switch labeled vertical landing auto sequence, and releases his hands from the hyperjet controls.  The jet drops out of the sky, the force of the safety harness digs into his shoulders.  The sequence has been calculated to hover at the edge of human comfort, as it nears the ground, short bursts of fuel are sent to the retro-engines, slowing the descent.
+
+The hyperjet touches down without a jarring motion to the pilot.  A cloud of dust settles as Levi opens the cockpit, and climbs out with a large duffle bag and a pistol.  His eyes are covered with TacGogs™, the vision overlay searching for live targets, current target count: zero.
+
+Levi slings the duffle bag over his shoulder, pulling the pistol up with both hands, steadying the sights and begins advancing towards the commune.  The building looks normal, no security shutters drawn, the door swinging open in the current of wind kicked up by the hyperjet.
+
+Inside the building, the place is ransacked; tables are overturned; the bar has been picked clean, devoid of all supplies.  He advances to the kitchen, leading with his pistol.  All the food is gone too, and he notices a smear of blood on the ground.  With caution, he approaches, following the blood trail into the refrigerator.  Anzhi is laying on the ground, her breath shallow but steady.  A blood soaked bandage is wrapped around her calf.
+
+"Are you here to finish the job?"  Her voice quiet.
+
+"I'm supposed to, but…"
+
+"Shut up, boy. You are my greatest failure.  What has the governess promised you?"
+
+"Everything and anything I want." His voice is solemn, quiet, respectful.
+
+"Then get it over with."
+
+He walks over to Anzhi, grabbing her around her waist, pulling her arm around his neck.  "Get up, let's get out of here.  We'll get you to a Med Vat facility."
+
+She hops on one leg, leaning against him for support.  They exit the building, and he helps her into passenger hold of the hyperjet.  "Strap in, and I'll get you there are quick as possible."
+
+He fires up the hyperjet, punches in the coordinates for the nearest Med Vat facility, and flicks on the comm system.  Governess Brant's face appears in the cockpit windshield.
+
+"Is it done?"
+
+"I was too late, completely evacuated, no one left."
+
+"Goddamn it.  Where did they go?"
+
+"No idea, Ma'am."
+
+"Okay, get back here, The capitol building is going on lockdown once you get here."
+
+"Ma'am." he clicks off the comm system.  "Let's get you healed up."
+
+***
+
+Med Vat facilities all look the same.  Squat boxes in teal and fuchsia with neon, real neon, around the building at the roof line, in two alternating stripes.  When the stripe is fuchsia, you know the wait is going to be long.  Levi breaths a sigh of relief when the Med Vat facility comes into view.  The neon is glowing a brilliant teal.
+
+The hyperjet's landing sequence is more gentle this time given how low he was flying.  Out of the cockpit, he runs to the front of the building.  A woman in fuchsia scrubs is outside with a nicostick dangling from her lips.  When she sees Levi approaching, she clicks the nicostick off and puts it into her pocket.
+
+"What's the trouble," she calls from the door way before he has even made it halfway across the parking lot.
+
+"Gun shot, in the calf, she can't walk."
+
+The woman, her name badge has "Jane" etched into its slick plastic surface, pushes a few buttons on the access panel outside, and a motorized gurney exits the building, and comes to rest at her side, and then she is off, sprinting to the jet.
+
+Anzhi is passed out in her seat, but the robotic gurney manages to lift her and place her onto itself with ease, and minimal movement of the injured limb.
+
+"How did this happen?  When did this happen?" Jane inquires as they run across the parking lot, the gurney whizzing on their heels.
+
+"I don't know, I just found her like this.  And I can't stay, please make sure she is looked after.  Charge all care to UCSA, Account Number 5012847-A54K."
+
+Once Anzhi is out of sight, he is back in the hyperjet, and zooming off towards the capitol.
+
+# Dominic
+
+Dominic and Ji crest a hill, and the Capitol Building rises about the horizon, a demon bathed in the fiery light of the morning.  Its peaked dome accounts for over half of its usable space, having expanded over the years.  It once was a stark white building against the sky, but Governess Brant's desire for a black mirrored exterior is nearing completion with only the very quarter of the dome still white against the sky.
+
+They slow to a stop at the top of the hill, surveying the land in front of them.  Tanks roam the street, one dotting the valley every ten blocks.
+
+Over the comm system, Dominic groans, "Should we wait until nighttime?"
+
+Ji takes a moment to respond, "But look, the tanks aren't moving.  At all." She raises her hand out to a small cluster of tanks.  No movement.
+
+"A scare tactic?"
+
+"Probably, and we are more maneuverable than a tank, anyway.  I say we run slaloms down the streets, make it impossible for them to track us, split up, and converge on the capitol building.
+
+"They have to know we are coming."
+
+"Yeah but Brant cut funding across the board, in the interest of investor profit, I doubt she has much of a security force anymore."
+
+Dominic shakes his head.  "Okay, let's do this."
+
+They speed off into the city, the towers of the buildings blocking out the morning sun, smearing into a blur of gray and black, interrupted in small spurts by proper alignment and the burst of direct sunlight that accompanies it.  They separate, Dominic turning left, while Ji turns right.  The map display on their Nightsight goggles showing an every changing path to the Capitol Building.
+
+Turn after turn, Dominic winds his way through the grid of the city, approaching the Capitol Building in small increments.  He is making a sharp right turn down one of the major boulevards, G Street West, and slams on his brakes as a tank looms in the street ahead.  The sharp breaking causes the bike to slide out from under him, tipping, and dragging him to stop at the front treads of the tank.
+
+The pain in his leg is sharp, pinned under the motorcycle.  If not for the combat suit, his leg and entire side of his body would be suffering from a bad case of road rash, but the suit protects his skin during the slide.  He lifts the bike off of his leg, and begins to stand up.  Weight on the leg increases the pain.  He walks around, gingerly putting weight on the leg, until he can walk normal.
+
+The tank is unmoving.  He steps up on the step rail, peering into the command console.  A young man dressed in battle fatigues sits in the tank with his feet up on the seat next to him, snoring deep, ravenous snores.  His left hand is resting in the waistband of his pants, the other arm thrown carelessly over his eyes.
+
+Dominic pulls up on the door handle just to the point of unlatching, being mindful of the sound, and keeping his eyes on the sleeping man.  With measured movements, Dominic enters the tank, closing the door behind him.  In one fluid movement, Dominic jumps onto the man, knee against his throat, grabbing his hands.
+
+The young man jumps awake at the pressure on his throat, eyes wild and filled with fright.  Arms and legs flailing he tries to fight Dominic off, but Dominic has the upper hand.  Hands bound with small plastic strips, cuffed tight, Dominic lets up on the pressure on his neck.  The boy coughs, breathing in gasping breaths as the air returns to his throat and lungs.
+
+"What the fuck?"
+
+"I'm commandeering this tank."
+
+"Go ahead, they don't pay me enough to try to resist  you."
+
+"Good boy," Dominic picks him up, and helps him move to the back of the tank.  "Stay there, we've going to go blow up the Capitol Building now."
+
+"Are you the terrorists they have been going on and on about on the news feeds?"
+
+Dominic nods, "Sure, terrorists, that's how they are spinning it."
+
+"You are blowing up a building, right?  Sounds like a terrorist to me."
+
+Dominic shrugs. "Only to get to the cabinet, more like, making my own door."
+
+"Uh-huh," the disdain drips from the young man's words.
+
+Dominic turns the tank around, heading down G Street West towards the Capitol Building.   This road is a straight shot, ending at the West side of the building.  Dominic pushes the throttle up, the tank barrels down the road, bumping, and vibrating, shaking his brain around in his skull.
+
+The young man is bounced off his seat, and thuds onto the ground, his cry of pain almost drowned out by the roar of the tank's engine.  Unstopping, Dominic careens the tank down the road, no other obstacles in his way.  As it nears the Capitol Building, Dominic calls back, "Better hold onto something, we're going through a wall."
+
+The tank's sudden arrest of movement jolts both passengers forward, wrenching the boy's hands off of the handle he grabbed to brace himself.  He flings forward, sprawled out in the back chamber of the tank.  The cloud of dust that the tank generated as it penetrated the outer wall of the Capitol Building begins to settle.  Red laser lines appear as a lattice work within the cloud.  They move is rapid, sweeping chaotic movement.
+
+Plink. A bullet hits the windshield, bouncing ineffective off of the reinforced tank glass.  Plink, and another bullet.  Then the bullets rain down on the tank front.  Each one causes Dominic to flinch, ducking his head below the metal.  Dominic pushes the throttle forward, the rubble of the ruined wall, brushes aside as the tank crawls forward into the main hallway of the Capitol Building.
+
+The sides of the tank rub against ancient wood paneling, scratching deep gouges into the wood.  Oil paintings knock off the walls and crunch under the treads of the tank.  The slow progress continues down the hallway.  The schematics for the building show the Governess's office is at the very top of the dome.  Inside the center of the building is the express elevator to her office.  Dominic pulls the tank to a stop outside of the elevator.  He swings the turret around and it rips a hole through the elevator shaft.  Finishing the turret movement, Dominic opens the top hatch and jumps into the elevator shaft, catching a ledge on the far side.
+
+He looks up, the elevator is pinned to the top floor.  *lockdown, I guess*.  From his backpack, he pulls a small gun-shaped device with a ball on the end.  He detaches a small tube from the base of the device, breaks it open and smears the clear liquid onto the ball.  The ball begins to soften as a chemical reaction begins.  He aims the gun above and fires it.  The ball flies up into the air, a thin line streaming after it, reeling out from an invisible reel in the handle of the gun.  Up and up it goes.  The device is rated to twenty stories, and the Capitol Dome is only fifteen stories, it eventually makes contact, and the ball sticks to the bottom of the elevator.
+
+Dominic starts a countdown timer on his wrist implant, five minutes.  He ducks down into a corner of the ledge, his black combat suit is near perfect camouflage for the dark interior of the elevator shaft.  The young solider pokes his head into the elevator shaft, looking into the darkness, his eyes missing Dominic entirely.  He leans out of the shaft, yelling back behind him, "He went in here, in the elevator shaft, but I don't see him. He probably fell to the basement."  He peers back into the shaft, looking down, under his breath, "stupid terrorist motherfucker," and then disappears back into the hallway.
+
+Dominic fingers the pistol strapped to his leg in a holster.  His wrist vibrates indicating the end of the five minutes.  He reaches out to the line, and yanks on the line, testing for hold.  The ball remains attached.  He pulls harder, and the ball remains attached.  *Perfect*
+
+The combat suit is equipped with a rope ascension device.  It is manual, but it works in a pinch.  He pulls the attachment point out from under it's protective flap near his crotch.  Running the end of the line through the point, he sits back, testing the hold.  The device holds his weight, so he swings out into the center of the shaft.  Dangling by an invisible thread, Dominic feels like magic.  
+
+From a side pocket of his backpack, he pulls out a small handle with a cam on one end.  He attaches the cam to the rope, and grabs onto the handle with his left hand.  His other hand grabs the dangling end of the line.  He slides the handle up as far as he can reach and pulls down on it.  The cam engages and bears his weight, locking the handle in place.  He pulls hard on the handle, and at the same time, pulls out the slack created by the initial pull.  He suit sticks in place and he is now an arms length higher than he was.
+
+Fifteen stories takes a long time for him to ascend this way, and he is exhausted when his hands finally touch the elevator.  The commotion of the reinforcements in the basement echoes up the shaft, covering his movements.  
+
+*Now, the last bit.*  He types on his wrist a message to Ji, "In place below elevator, status?"  Dangling one hundred twenty-eight feet above the ground, Dominic waits.  After what seems an eternity, his wrist lights up with a response, "On roof, go time."
+
+Dominic begins to pendulum himself towards the ledge at the edge of the elevator shaft.  This ledge is a maintenance ledge, under normal operating procedures, a locking scaffold platform would be cantilevered out into the shaft, and anchored to both ends of the shaft, but he does not have this luxury.  After seven swings, he has enough of an arc to reach the ledge.  He plants a foot, but his center of gravity does not quiet make the ledge.  On the eighth swing, he is solidly on the ledge, holding onto the ladder.  He detaches the line from his suit, and hooks the handle onto the ladder.
+
+Up the ladder, he looks through the slats of the maintenance access grate.  Two soldiers are standing to either side of the door to Governess Brant's office.  They carry pulse rifles, the high energy beam weapon that the UCSA keeps for their exclusive use.  These things can cut through one foot thick titanium like it is warm butter.  Not something the combat suit will be able to stop.  *Come on, Ji, make some noise*  He pulls out a small surgical knife from a small pocket along his lower back.  The blade slides out of the sheath, glinting in the light filtering in from the hallway.
+
+The sound of breaking glass pierces the silence.  A woman screams in reaction from behind the door.  The guards turn around, fumbling with their access cards.  *Now*.  Dominic opens the grate, sprinting at the guards, knife drawn.  Hand around the right guard's mouth, knife slicing a clean, deep cut through the guard's throat.  Blood gurgles out and billows to the floor.  Stunned the other guard hesitates, and starts to bring his plasma rifle up, but Dominic's knife slices his throat open too.  His eyes go wide and lock onto Dominic's face before his body crumples to the ground.
+
+Dominic wipes the blood off of the access card and swipes it through the terminal.  The door unbolts, swinging open with a pneumatic hiss.  He reaches down, picking up the two plasma rifles, slinging one over his shoulder and leveling the other at the room.
+
+Ji stands amidst an array of broken glass, pistol trained on Governess Brant who is seated in his office chair.  Dominic tosses Ji his plasma rifle, and swings the one on his shoulder down into his hands, aiming at Alexandrine.
+
+"Nice of you to join us, Nic."
+
+"Had a couple of guards to contend with."
+
+"What are your demands?"
+
+Dominic steps forward, "Demands?  The destruction and dismantling of the UCSA, of course.  Your arrest, the indictment of NewTek, and you being hanged for crimes against humanity."
+
+She rolls her eyes, "Oh is that all?"
+
+Dominic activates his comm system, "beta team, this is alpha team, come in."
+
+Over the ear piece, "Go ahead alpha team."
+
+"The bitch is secure, commence with broadcast."
+
+"You probably don't want to miss this," Ji says as she turns on the news feed.
+
+The recordings between Vienne and Alexandrine begin to play out across the news feed, a litany of charges leveled against the UCSA and Governess Alexandrine Brant play across the screen.  The world council hotline begins to ring, each piercing shrill of the mechanical bell dooming Brant.
+
+Ji motions to the phone, "Pick it up."
+
+Alexandrine picks it up, placing it with delicate fingers against her ear.  "Yes, No, Yes, but you don't understand, no, yes, held hostage, no, yes, yes, okay fine." She hangs up.  "Happy?  I'm being indicted by the world council."
+
+A gunshot booms out and a bullet clips Ji in the leg.  She falls to the ground, screaming in pain.  Alexandrine moves in that instant, grabbing a small pistol from under her desk, and lunges at Dominic, knocking him off his feet.
+
+Levi walks into the room, gun smoking.  Ji steals herself against the pain, swinging the plasma rifle up at Levi.  She pulls the trigger and a blinding blue light bursts across the room, hitting Levi square in the chest.  Trigger released, the plasma rifle has burned a circular hole straight through Levi's chest, cauterizing the wound immediately.  He blinks in disbelieve, hovering between life and death for mere seconds, and then collapses to the ground.  The acrid smell of burnt flesh permeates the room, churning the stomachs of everyone.
+
+Alexandrine is holding his pistol to Dominic's forehead, pinning his rifle arm to the ground with her knee.  "Put the rifle down, you fucking cunt." Alexandrine screams in Ji's direction.  Ji holds the gun up with her other hand up, and then in a slow manner bends over, dropping the rifle on the ground.  "It's over, for all of us.  I'm going to kill both of you."
+
+Dominic smirks, "good luck with that."
+
+Alexandrine pushes the muzzle of the gun harder against his forehead, "Shut up, just shut the fuck up, you cocky little prick."
+
+Dominic looks over at Ji, "a bit of a pickle, isn't it?"
+
+Alexandrine uses the handle of the gun to strike Dominic against the face, "I said, shut up."  Ji moves a few steps closer, but Alexandrine notices and swings the gun over to Ji, "Don't come any closer!"  She yells, her hands trembling, the curls of her hair collapsing from the perspiration forming on her forehead and scalp.
+
+Dominic takes this moment to swing his legs up, wrapping them around her torso and twists them heavy to the side.  She loses her balance, beginning to fall.  The gun goes off, firing as she is startled by the movement.  A bullet hole lodges into the wall opposite them.  Dominic rolls on top of her, but she is quick, and the gun moving back into Dominic's face, managing to get it between them before he can pull the pulse rifle up.
+
+"Cute move, now get off of me."
+
+Dominic shakes his head, "No, I don't think so." And with a quick flick of his arms, he has disarmed her, gun in his hand, pointing at her.  "Game over, we win.  Ji, MagCuffs?"
+
+Ji shrugs, and Dominic rolls his eyes, and yanks her up off the ground, leading her over to her desk.  He yanks the cord of the world council hotline phone out of the wall, and ties her hands behind her back, pinioned to the chair.  He activates the news feed relay camera that sits opposite her desk, the red light on top of it turns red.  Ji pulls a notebook out of her pocket, and begins reading into the camera.
+
+"Ruling members of the UCSA cabinet, behold your leader, Alexandrine Brant, being indicted by the world council for crimes against the world, technology hoarding, and black ops.  The UCSA is being disbanded and the Worker Libration Front is issuing a demand for worker rights across the entirety of the continent.  Any cabinet member not willing to comply will be dealt with appropriately."
+
+"If we can get to Governess Brant, we can get to you.  You have forty-eight hours to enact worker right amendments to your company charters.  We will be monitoring."
+
+Dominic shuts off the camera. "Now what do we do with her?"
+
+"The original plan was the hyperjet, but…" an alarm on Ji's wrist begins the go off, "we have movement in the hallway. Get the door closed and barricaded."
+
+Dominic slides across the desk, sprinting towards the door.  He slams the door shut, and starts pull a sidebar stacked with pictures over, across the door.
+
+Ji calls from her position crouched behind a wooden end table, "That won't hold."
+
+"I know, but it will slow them down."  He runs back to the other side of the desk, ducking down, aiming the plasma rifle at the door.  Heavy foot steps pound down the hallway, and the door begins to rattle.  Every breath is held as repeated bashes against the door sway the doors inward.  The pictures fall one by one to the ground, the breaking glass startling Dominic.
+
+The doors splinter in as the last bash of the battling ram fractures the door jab, only a crack, but enough for two canisters to roll in, spewing smoke into the room.  Alexandrine screams, "Help me!"  The smoke billows out of the canisters, filling the room with a thick white smoke.  Dominic activates the nightsights infrared filter, and straps on the air filter.  Three human-shaped orange blobs appear in his vision, two on each side of the door and a third one behind the credenza.
+
+Dominic looks down at his plasma rifle, a bright yellow aura surrounding the gun.  *Good, no plasma rifles*.  Dominic stands up, leveling the rifle at the right guard.  He pulls the trigger, the plasma cutting through the wall, into the head of the guard.  He holds the trigger for a long moment, and when he releases the trigger, the infrared is overwhelmed by the residual heat of the plasma.
+
+Another beam of plasma shoots out from his right, flaring the infrared again, it blows the sidebar apart, the smell of burning wood and flesh filtering in through his air filter.  The left guard is left, and as the infrared is normalizing around the residual heat of the plasma, the guard begins running away, back down the hallway.
+
+Dominic jumps over the desk, sliding to his feet, and sprints down the hallway, catching up to the guard.  He grabs the back of his shirt, and pulls him to the ground, punching him in the face.  Tears stream down from his face mixing with the blood from his nose.
+
+"Please… please don't kill me."  He is barely eighteen years old. *fuck the UCSA for hiring children to be their guards*
+
+Dominic picks him up off the floor and leads him, pulling him by the front of his shirt into the office.  He points at the sofa near the window, "Sit."  The boy sits without hesitation.  He walks over to the Governess' desk, stepping up onto it, and landing roughly with his legs straddling her knees, pushing the chair further towards the wall.  He grabs his pistol from his leg holster, and presses it against her cheek.  "Children?! You hire children to protect you?"
+
+"They are cheap," her voice is cold.
+
+"You are a sociopath."
+
+She rolls her eyes at him, "Oh, poor little revolutionary doesn't want to kill children.  Boo fucking who."
+
+He presses the gun harder into her cheek, she winces from the pain, and Ji calls out, "Dominic, don't, she isn't worth it, let the world council deal with her."  He looks back at Ji, hangs his head and then knocks the stock of the pistol against her temple.  Her head lulls to the side, unconscious.
+
+"Let's get out of here.  I have a tank downstairs."
+
+"Rappel?"
+
+Dominic nods and approaches the young boy, "Two choices, come with us, be free, or stay here, unmoving until the world council gets here."  The boy stands up, extends his hand, "I'm Vinzent."
+
+Dominic grasps his hand and shakes with vigor, "Dominic, and this is Ji, welcome to wolf.  Let's go!"
+
+Two ropes are produced from the backpacks, tied off to the ladder rungs, Ji rappels down first, followed by Vinzent.  Dominic slides down the rope, joining the other two.  Hopping into the tank, Dominic slides it back down the hallway.  Once free from the building, he spins the tank around, and zips down the road, heading out of the city and onto the open road.
+
+He activates the comm system, and Vienne's face appears on the windshield.  "Brant detained, broadcast went out, World Council on their way to arrest Brant.  How's the Wall?"
+
+"We… good… waiting…confirmation… Wolf… Ramon… happy,"  her face choppy and segmented, the communication satellites flooded with broadcasts and chatter.
+
+# Max
+
+The Wall City is a pleasant place, filled with a mix of people with extreme character, colorful visages, and a flair for life.  Max stands naked on the balcony of their new apartment, overlooking the main bazaar of the city.  It is only the fifth floor, and the sounds of the early morning bazaar waft up to his ears, and he smiles while he takes a sip of his coffee.
+
+From the open door, he can hear Dominic and Vinzent discussing wild notions of freedom, and the likely outcome of Governess Brant's trial.  The hint of the news feed slurs in with their words forming a soup of sounds that Max has a hard time focusing on.  A cool breeze is blowing in from the north, and rain trickles down a series of loops and chutes that direct the water to a drain far below.
+
+Max walks back into the apartment, and smiles, sitting down at the kitchen table, Dominic to his right, and Vizent to his left.
+
+Vizent passes Max a small plate of bacon smiling, "Always naked, that's our Maxxie."  Max laughs, taking a couple of pieces of bacon.
+
+Through bites of bacon, and sips of coffee, they continue to discuss the trial into the morning.  After breakfast, they enjoy themselves, together, in the shower, and then again in the early afternoon.  The sex is great, and they have really bonded, all three equals, and all three falling deeply in love.  Every once of doubt Max had now has melted away in the last two months as they have settled down in the Wall City.
+
+# Vienne
+
+Vienne's sharp gray dress flows in the eddies of her approach to the witness stand.  Her hair has been cropped short, and tinted blue in stripes along her bangs.  The lie detecting device is attached to her wrist, and she sits with her legs crossed at the ankles.
+
+Alexandrine sits opposite her, staring with empty eyes straight ahead, all hope and life quenched from her by two months in the World Council's advanced interrogation unit.
+
+A man, dressed in one of the worst suits Vienne has every seen, approaches her, "And in your own words, please tell me what Ms. Brant asked you to do?"
+
+Vienne tells a tale of intrigue, of espionage, and of sabotage, culminating in the order for her elimination.  The World Council is enamored with Vienne's story, hanging on her carefully crafted words, weaving the story with the polish and expertise of a great orator.
+
+When done, the man thanks her for her time and excuses her from the stand.  She returns to her seat, waiting out the rest of the trial.  The Council exits to deliberate, and Vienne goes into the hallway to smoke.  While she is inhaling on her nicostick, an officer leads Alexandrine out into the hallway and gives her a nicostick.  The two women's eyes meet, and Alexandrine spits towards Vienne, but Vienne jumps away, avoiding the spit.
+
+A pleasant smile grows across Vienne's face.  "Alex, love, you did it to yourself, don't blame me.  I'm just the harbinger."
+
+Alexandrine lunges at Vienne, but the guard catches her before she can, arms outstretched, straining ineffectually towards Vienne.  Vienne blows Alexandrine a kiss, turning around, and walking out of the World Center.  A long black car waits on the curb, and a man, dressed in a form-fitting black suit and driver cap, has the door open for her before she is down the first step.
+
+The door closes behind her, and the driver enters the other side of the car.  "Home, please."  The car speeds off down the boulevard, turns in a half circle around Place de La Nation, turning down Avenue Phillippe-Auguste.
+
+She sighs a deep, long sigh, *Home* The home of her childhood. 
+
+Her apartment overlooks a small park with the late evening sun throwing long shadow, children play and appear and disappear among the shadows.  The holoprojector in her living room is chiming as she walks into the door, she clicks it on.  The Chancellor of the World Council appears above a small fireplace in the corner.
+
+She bows a deep, respectful bow, "Chancellor?  This is unexpected."
+
+"Mademoiselle Vienne, we were so moved by your story today that we could like to offer you a position at the World Council.  Media relations.  You would represent the council to the world as our liaison to the media.  Full benefits, and excellent pay."
+
+"Chancellor Sarkosy, I am honored, and graciously accept."
+
+"Excellent, please be at the Council Center at 9am sharp tomorrow."
+
+Vienne bows again, "Thank you, sir."
+
+The holoprojector shuts off, and Vienne goes into the refrigerator and pops open a bottle of sparkling wine, the cork hitting the ceiling as it is ejected from the bottle.
+
+# Ji
+
+The quiet of the commune is unsettling to Ji.  While its previous inhabitants never talked, the sound of their movements and their activity was enough to fill the void, but now, with only Ji and Anzhi living there, it has taken on an eerie presence which Ji combats with loud, aggressive music, and painting on the walls.  Anzhi has given her the entire upper floor, and sides away in the small manager's quarters on the first floor.
+
+Covered in paint, Ji surveys her latest mural, a fantasy epic scene with her as a metal bikini wearing warrior mounting a centaur and wielding an ax.  The centaur's features a mix of tan skin and short cropped brown hair, the lines of his torso a familiar scene, if only he was holding a cup of coffee.  There are no shorts to hide his penis, drawn in excruciating detail.
+
+She wipes her hands on her once-white scrubs, and walks into the hallway, and down into the dining room.  Once bustling with people, it is empty, lonely.  Anzhi sits drinking a cup of tea, reading one of the hundreds of romance novels left behind.  She smiles as Ji walks through the archway.
+
+"All finished?"
+
+"Yeah, it is so epic, battle axe and everything."
+
+"And what is Dominic this time?"
+
+"A Centaur, I'm riding him."
+
+"I bet he would like that.  Have you sent him any pictures?"
+
+Ji shakes her head as it lowers to look at her feet, "He's happy in his new life, I can't get him involved in the WLF anymore."
+
+"But the fight is not over."
+
+"It is for him."
+
+Anzhi takes a sip of her tea, "Is it?"
+
+Ji nods, "It has to be, for Max's sake, and for their new live in whatever he is."
+
+"Vinzent?  He's a good kid."
+
+Ji shrugs, and plops down into the chair next to Anzhi.  "When are you going visit them next?"
+
+"Christmas, maybe sooner." Anzhi says with a shrug, "Or whenever I feel the fancy.  The Wall City is nice this time of year."
+
+"I'll go with you next time."
+
+"Send him some pictures of your murals.  He'll be flattered."
+
+Ji nods, and pours herself a cup of tea from the pot sitting in front of them.
+
+# Simon
+
+The bells of the monastery chime as soon as the sun crests the horizon.  Simon has been awake for an hour in silent mediation, sitting in the dark while the other guests slumber.  At the chiming of the bells, he opens his eyes, disrobes, and walks in solemn contemplation to the showers.
+
+He is the first one in, but soon after, all of the guests file in, naked.  The showers turn on, cold water hitting them from all directions, some of the newer guests break the silence with yelps at the initial hit of water.  Simon does not flinch or even register the coldness anymore.
+
+Exactly five minutes after the showers turn on, they turn off.  Simon walks out, grabbing a towel from the shelf.  Back at his bunk, he towels himself dry, and slips on his vestments, and leaves the dormitory.
+
+The courtyard of the monastery is a verdant garden filled with vines, and green of every imaginable hue.  Other colors are mixed with the green, giving way to patches of purple, red, and yellow.  A Japanese maple tree is the dominate feature in the courtyard  A small bench sits under it, and a young monk sits staring into the garden, lost in the greenery.
+
+Simon sits down next to the monk, but no notice is given.  They meditate in silence, staring at a rose bush with only a single rose growing from it.  Simon believes it's an Australian Rose, the dark pink hue shines in the warm morning light.
+
+The young monks leg twitches against Simon's leg.  The hint of a smile flashes across Simon's face before returning to the placid composure, and Simon pushes back with a soft touch.  The young monk turns to him and smiles.  Simon smiles back.  Simon stands, turns towards the monk, and then walks to the cafeteria.  He sits down to a meager breakfast, and then reclines in the main gathering hall, waiting for morning practice, waiting for instruction from one of the wise teachers.
+
+***
+
+His life carries on this way for a year. Few last longer than a year in the house of silence, but Simon is content with the life, until he receives a note from the abbot detailing the Workers Liberation Front's latest accomplishment.  That same night, he packs his bags, boarding a bullet capsule heading for the Wall City.  Time to reunite.
+
+# Dominic
+
+Dominic opens the door to their flat, and Ji is standing there with a backpack on her left shoulder, and a coffee cup in her right.  They hug a strong embrace.  She has been training hard, and lost some of her roundness and replaced it with tight, sinewy muscles, Vienne, looking a little older around the eyes, is already sitting on the sofa making small talk with Simon.
+
+Max and Vizent are sitting on the balcony, smoking nicosticks.  Dominic calls out, "Ji's here!  And she's drinking truck stop coffee!"
+
+Max calls back, "Oh dear god, get that woman some real coffee!"
+
+Anzhi is missing, her health failed her in the last month, and slipped into a deep coma from which she has not awoken.  She has been transferred to a Med Vat facility here in the Wall City.
+
+Dominic smiles as the team has reunited for one last mission, one last request from the Workers Libration Front.  One more chance to shine like a bright star in the sky.
+
+Dominic hands Ji a small ceramic cup filled to the rim with dark, fragrant coffee.  She takes a sip and sighs a deep, content sigh, "It is good to be home."
+
+They spend hours catching up, telling tales of lovers come and gone, Vienne's recent media blitz with the World Council, and the amazing food that Vinzent has learned to cook at his part time culinary school he has been attending.
+
+Laughter and drinks permeate the room through the night, they all pass out somewhere near one in the morning, legs and bodies intertwined all around the room.  The morning sun finds Simon and Dominic out on the balcony, sharing a nicostick filled with a local plant that is both relaxing and invigorating, mellowing and exciting of the senses.
+
+"A fucking monastery?  God you must be incredibly horny after a year of that."
+
+Simon grins a sheepish grin, taking another drag on the nicostick, the smell of cut grass mixed with a citrusy undertone wafts around them.  "There was this one monk who couldn't keep his hands off of me, or his mouth."
+
+"Oh, scandal among the brothers."
+
+Simon's grin deepens, "it's good to be back among the land of the living."  He puts his hand on Dominic's leg, and Dominic picks it up and puts it back on Simon's own leg.
+
+"We are committed now, nothing outside of the three of us, sorry."
+
+Simon pouts, "I guess I missed out on my chance to be that third, huh?"
+
+Dominic smiles, "Vienne would have been so mad."
+
+The sun rises fully, and Dominic and Simon share a quiet morning before everyone wakes up.  The rest of the team is fully gathered inside, and Max is passing out coffee to everyone.
+
+Vienne motions for the boys on the balcony to come inside, and she draws the shades.  Punching up some details on the coffee table holoprojector, she brings up a map of NewTek's headquarters.  "The World Council has sanctioned the Workers Libration Front to dismantle NewTek once and for all.  Ramon has planned every detail of this mission, but given our effectiveness, he would like you to carry it out," she points at Dominic.
+
+Dominic nods, "One last rodeo, eh?"
+
+"If you are up for it."
+
+Vinzent walks up behind Dominic, placing his chin on Dominic's head, sending his hands down Dominic's chest, "He's up for it, give us the details."  Dominic rotates his head up to look at Vinzent, smiling.  Vinzent kisses his forehead.
+
+"Okay, give me the plan."
+
+# END
+
+END
