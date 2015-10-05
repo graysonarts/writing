@@ -258,3 +258,36 @@ Sobbing, Timmy stands up, fighting against the pain, as Jeffery turns back to th
 
 Jeffery stares, mouth agape, at the large hole in the store front.  "Goddamn it."
 
+Timmy drives straight to the dock where Vance and Mr. V are loading up the boat for an evening's fishing trip.  Timmy slams to a stop at the end of the dock and runs up the dock.  Vance sees him, "Mr. V, how about you go get the engine ready, and I'll take care of this."
+
+Mr. V nods, and climbs down into the boat, disappears from sight.
+
+"That fucking old man has gone crazy! Look what he did to my face!  It's my only good asset."  Timmy's face is swelling and discolored, his wet eyes glisten in lights of the dock.  He shakes as he talks.
+
+"As your curling coach, at least you know the truth.  What happened?  Just calm down, and tell me what happened."
+
+"I took the money from the til, like you told me to, for the parkas, and I was replacing it, but pop-pop was out of jail."
+
+"Well yeah, he made bail."
+
+"Oh, so he was mad about getting arrested, though not my fault, I didn't know what the fuck was in the briefcase, and then I took the money out, and then he started beating the shit out of me because he wouldn't take no for an answer for where I got the money.  I don't want to be anywhere near that psychopath.  Can I come on the boat with you?"
+
+"Do you even know how to swim?  Isn't that why you are on the curling team?"
+
+"At least I can doggie paddle, plus, life vests, come on."
+
+Mr. V calls up from the boat, "No fucking way that kid is coming on my boat, and I'm not going to double cross my dealer."
+
+Timmy leans over the dock, "It's not like he's going to stop selling to you.  You're his best customer from what I can tell."
+
+Vance leans over too, "Don't you know old Jeffery from way back in the day?"
+
+"Yeah you were in 'Nam together, he's not going to cut you out."
+
+Vance looks pleadingly at Mr. V, "Come on, the kid is obviously scared, and look at his face, look what his pop-pop did to his beautiful face."
+
+Mr. V sighs heavily, "Vance, come fix up the map," he nods towards the cabin, "And Timmy, there is a life vest at the end of the dock, can you go grab that and put it on?"
+
+Timmy nods and jogs to the land as Vance climbs down into the boat.  The engine purrs as Mr. V pulls away from the dock, leaving Timmy holding a life vest.
+
+***
