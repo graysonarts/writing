@@ -222,3 +222,39 @@ Timmy bites his lip and nods his head in an imperceptible way.
 
 ***
 
+Jeffery's clothes are stained with sweat as he sits in the backroom of the tanning salon.  The long drag on his bong leaves him coughing as the bell of the front door rings out.  He puts the bong down gingerly on the bench next to him, and walks to the front of the store.
+
+Timmy is putting money into the til as Jeffery appears from behind the door.  "Timmy, what the hell, are you stealing money from me?  And why did you send me to jail, man?"
+
+Timmy pushes the til closed, "Jail was not my fault.  I didn't know what was in the suitcase."
+
+Jeffery slams his hand against the counter, "You could have assumed!"
+
+Timmy's forehead creases, "Why? Because you have a bunch of pot plants back there?"
+
+Jeffery nods furiously, "Yeah, that would be the chief reason!"
+
+"Whatever, and I'm not stealing from you, I put the $800 that I borrowed back into the til."
+
+Jeffery jumps over the front desk, pushing Timmy into the wall, "What is this endless stack of cash you seem to have?"
+
+Timmy struggles against his grandfather's strong arms, "There's other ways of making money in this town."
+
+Jeffery's face is so close to Timmy's that the smell of his unbrushed prison teeth causes Timmy to gag, "You better not have sold any of my goddamn pot, I swear to god."
+
+"I don't touch that stuff, they drug test us on the curling team.  Coach Vance would kill me."
+
+"If you've got a money making scheme, you better cut pop-pop in."
+
+Timmy's struggles against Jeffery subsides, "I don't think I need any more old men involved in this."
+
+"What other old men, Timmy, what are you getting up to.  Tell me!"  The back of Jeffery's hand connects with Timmy's face, the flesh slapping rings out, echoing off the glass windows of the store front.  "Where did you get this money?  You better not be whoring yourself out."
+
+Tears are streaming down Timmy's face as he kicks Jeffery in the nuts, causing him to double over in pain, freeing Timmy from his clutches.  Jeffery's face flashes red, the pounding of his heart drowning out all other sounds.  The rage flies out of him as he begins to punch Timmy in the face.  Timmy falls to the ground as Timmy curls into the fetal position, "I swear to god, Timmy, I will beat you back into your mother."
+
+Out of breath he snatches the money bag from Timmy's hand, "I'm going to keep this safe for you.  Pop-pop will invest it for you.  Now man the goddamn desk."
+
+Sobbing, Timmy stands up, fighting against the pain, as Jeffery turns back to the pot room door.  Timmy picks up the cash register, throwing it through the plate glass window of the store front.  The rain of glass shards tinkle to the ground, the sound and reflected light dance across the space as Timmy bolts out of the building, into his yugo, and drives away.
+
+Jeffery stares, mouth agape, at the large hole in the store front.  "Goddamn it."
+
