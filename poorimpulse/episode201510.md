@@ -140,5 +140,85 @@ Vance laughs, walking out of the locker room as he calls over his shoulder at Ti
 
 ***
 
+The sun is just barely cresting over the horizon, an expanse of ocean that is clear and blue with a small sliver of  land, swallowed up by the glare of the sun.  The crimson and orange hues paint a single fishing boat, bobbing about on the rolling waves.  The words "Totally catching tuna" are scrawled across the stern in hand painted lettering.
 
+Vance and Mr. V are hauling a heavy net onto the deck of ship.  A single dolphin struggles against the net, and its weight is making progress slow, and tedious.  Between sharp intakes of air, Vance stammers, "We are going to need to cut the trip short today.  The boat needs some, um, repairs."
+
+Mr. V pauses the progress of his side of the net, "What repairs?  Boats working fine."
+
+"Just, you know, routine maintenance, gotta fix it before it breaks."
+
+"Yeah sure, what part are you going to work on?"
+
+"The engine?"  Vance pulls the dolphin onto the deck and it flops around.
+
+Mr. V takes a spear off the wall of the cabin, and stabs the dolphin twice until it stops flopping.  With heavy breaths, "Do you want some help?"
+
+Vance pulls the net off of the dolphin and begins to cover it with a tarp, "Nah, nah, no, it's all good, just boring, routine, tedious work.  It's easy, just takes a while."
+
+"You sure? I rebuilt the engine last summer"
+
+Vance secures the tarp onto itself, "Nah it's okay, you take the afternoon off.  I heard about your trouble yesterday."
+
+"Oh yeah, That little Timmy, his pop-pop needs to give him a good wooping."
+
+"He is a bit rambunctious."
+
+"I hope, for his sake, when he graduates, he gets out of here and never comes back."
+
+Vance laughs, "Yeah but then he'll end up all liberal minded and come back here to try to change us."
+
+Mr. V steers the boat back towards town, turning into the sunrise.  They make their way to the dock over the next hour in silence.  Vance busies himself with gutting portioning out the dolphin, tossing identifying parts over the port side gunwale of the boat.  In total, the one dolphin filled five ice chests full of meat.
+
+As they dock, Vance calls into the cabin, "Can you take the map with you, you know, to keep it safe?"
+
+Mr. V stares at Vance for a moment before responding, "Sure, but why? it's perfectly safe here."
+
+"Oh you know how clumsy I can be.  I'll get grease all over it, or something.  Just take it home, and bring it back tomorrow.  Oh, and take the tuna too, because I'm going to get to work on the engine immediately."
+
+Mr. V shuts off the engine of the boat, nodding, "Yeah sure, We have a buyer today, so I'll just do the exchange."
+
+Vance nods.
+
+"Help me load these ice chests into my truck." 
+
+Vance nods again, grabbing two of the ice chests, stepping up onto the dock, a hesitation of his steps causes him to stumble before the boat rocks, helping him catch his footing, and hops onto the dock.
+
+A Yugo, aging, sun-bleached yellow paint, pocked full of rust holes, slides to a stop at the end of the dock, and Timmy jumps out, running down the end of the dock to Vance.  "I got all ten of them!"
+
+Vance face goes pale, "You, you are a little early, Timmy."
+
+Mr V emerges from the boat, plopping one of the ice chests down onto the dock, pulling himself up to standing. "Oh, look, it's the little shit."
+
+"Have you met Mr. V, Timmy?"
+
+Timmy waves, "Oh yeah, he got busted with my pop-pop."
+
+"Ten of what, exactly?"
+
+Timmy, face beaming with pride, "Parkas!"
+
+"In August, what do you need ten parkas in August for, little Timmy?"  Mr. V's shoulders come forward, leaning in towards Timmy, fists clinched at his hide.
+
+Vance steps forward to put himself between Mr. V and Timmy, "It's some training I've heard about.  Get them really hot, make them practice really hard, then when it's competition time, it's like easy play."
+
+Timmy nods his head with frantic motions, "Yeah it's like those space suits they used to wear in the 80s."
+
+Vance smiles, "Yeah, just like that!"
+
+Mr. V narrows his eyes at Timmy, and then at Vance, and then returns to Timmy, "The curling rink is on the other side of town.  Why are you bringing parkas to the docks?"
+
+"I told him to meet here, so that, uh–"
+
+"Damn, you caught a ton of tuna today!"
+
+Mr. V lets out a sharp quick exhale, "GMOs, look, didn't you flunk biology?  Do you even know what a tuna looks like.
+
+Timmy bites his lip and nods his head in an imperceptible way.
+
+"And it's not like you've ever been fishing.  Your pop-pop seems pretty against you coming near the boats anyway.  To you a tuna looks like a can you buy at the store.  So why don't you leave those parkas here, and get."  Mr. V pushes his way passed Vance, standing tall over Timmy's short frame.
+
+"Yeah, why don't you load the parkas into my car, here, let me help you."
+
+***
 
