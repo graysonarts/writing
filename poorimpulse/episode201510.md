@@ -339,3 +339,32 @@ Vance crosses his arms across his chest, "Scoundrels?  I'm just doing tours for 
 
 "You keep Timmy out of trouble.  I'm not interested in any of your schemes, buddy, and if I see Timmy around you, I'll beat you both so bad.  You go and get.
 
+Vance walks out of the salon through the empty window, as Mr. V pulls up in his truck.  They exchange a brief glance as Vance gets into his truck and drives away.
+
+Mr. V hops out of his truck and walks into the salon through the empty window.
+
+Jeffery throws his hands up in the air, "Would people stop doing that!  We have a door!"
+
+Mr. V hunches over the desk, peering at Jeffery, "I'm here to pick up the delivery Timmy fucked up.  I paid you, I know the cops took it and shit, but I never got my goods.  So you need to mosey on back into that backroom and find what I need."
+
+Jeffery puts his hands behind his head and leans back against the wall, "Yeah, that's not going to happen, my friend.  You know the rules."
+
+Mr. V glares, "I know the rules, so I'll need my briefcase of money back, then."
+
+With a smug grin on his face, "I'm sorry, I don't think I can do that either.  You know the rules of the road."
+
+Mr. V leans in further, "You know, little Timmy has been coming around alot more often lately. It would be a shame if there was some sort of accident, that could have been stopped if only I had my briefcase back."
+
+"That horse won't run.  I can't confidently say Timmy encountering an accident wouldn't benefit my life."
+
+Jeffery pushes himself off the back wall, "You come into my tanning salon, you try to extort me.  You threaten my idiot grandson.  You walk through my plate glass window.  You have no class, sir!"
+
+Jeffery grabs a dime bag from under the counter and flings it at Mr. V, "Here, keep the tip, you filthy animal."
+
+Mr. V looks at the dime bag, "Really?"  He lets out a heavy sigh, picks up the brochure rack, and tosses it through the other plate glass window.
+
+"Motherfuck!"
+
+Mr. V strolls out through the newly opened window, "Have fun reporting that to the cops, buddy.  Explain to them why I did it."
+
+Jeffery calls after him, "yeah I'll explain what your tuna is too, asshole."
