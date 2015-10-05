@@ -291,3 +291,51 @@ Mr. V sighs heavily, "Vance, come fix up the map," he nods towards the cabin, "A
 Timmy nods and jogs to the land as Vance climbs down into the boat.  The engine purrs as Mr. V pulls away from the dock, leaving Timmy holding a life vest.
 
 ***
+Vance's footsteps strike heavy on the cement as he slams his door and walks into the tanning salon.  Jeffery is sitting behind the front desk, talking on the phone.  When he sees Vance enter, "Hey, I have to go, yeah, the window is going to need replacement.  Yeah talk to you later."  He hangs up the phone.
+
+"Coach Ford, what can I do for you?"
+
+"Mr. Kushman, you can't go around hittin' your boy, you know that, right?"
+
+"Who the fuck do you think you are?  Coming into my place of business and telling me who I can beat?"
+
+Vance slams his hand down on the front desk, "It's not my responsibility.  I have to go talk to the cops, and no one likes the cops."
+
+Jeffery mirrors his words, "No one like the cops, that little piece of shit threw my register into the window!"
+
+Vance smirks, "he's got a good curling arm."
+
+"And what do you care, anyway?"
+
+"Because now I'm required to go to the authorities and report this abuse.  My star curler looks like a piece of day old meat!"
+
+Jeffery leans forward, lowering his voice into a growl, "And what if the authorities find out about all his little secret schemas he's running.  I'd assume you wouldn't know anything about that, huh Mr. Ford?"
+
+Vance stands up straight, drumming his fingers on the counter, "Only scheme I know he's running is working here at this 'Tanning Salon'," he makes air quotes with his fingers.
+
+Jeffery leans back in his chair, "Touché"
+
+Vance smiles, "This extremely well lit tanning salon.  I do have an idea, maybe help us both out, a bit of a business proposition to expand your market a bit, if you promise to stay your hand more with Timmy.  Keep the cops out of this."
+
+Jeffery nods, "I'm listening, but I can't promise anything, that damn kid.  But I'm not interested if Timmy's involved, he's going to fuck it up.  Inevitable, man."
+
+Vance leans in, "you are probably right, but here's my idea.  Occasionally, Timmy's been helping me out with some sightseeing tours, you know, show tourists the sights."
+
+Jeffery nods, "that's where he's getting that fat stack of cash, from sightseeing tours?"
+
+Vance winks and nods his head, "These city folks, you know what city folks get up to."
+
+"I know the type."
+
+"They probably would enjoy some of your non-tanning products."
+
+Jeffery smirks, "I think we could broker some type of arrangement."
+
+Vance rubs his hands against his cheeks, "We can use Timmy to mule the products."
+
+Jeffery puts his hands up, "Let me tell you, I've tried that.  Not a great drug mule.  I do not feel safe with Timmy being involved.  I think I'm going to lay low.  I'm feeling the heat after this latest bust.  I don't think arranging to work with scoundrels like you is in my best interest."
+
+Vance crosses his arms across his chest, "Scoundrels?  I'm just doing tours for city folk."
+
+"You keep Timmy out of trouble.  I'm not interested in any of your schemes, buddy, and if I see Timmy around you, I'll beat you both so bad.  You go and get.
+
