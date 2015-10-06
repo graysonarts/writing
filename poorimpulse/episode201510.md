@@ -511,10 +511,6 @@ Timmy eyes the briefcase and the bag.  He picks them up, and leaves the cabin.  
 
 ***
 
-
-
-***
-
 Vance parks at the docks right on time, and makes his way to the boat.  Mr. V is already there, sharpening the large knife they use for gutting the dolphin.  Vance climbs up to the boat, "Fine, 5% is better than 0%."
 
 Mr. V places the knife down, and walks to the gunwale of the boat, pulling the mooring lines off of the dock cleats.  Vance picks up the knife, and swings it Mr. V's back, but Mr. V ducks to coil the mooring lines as the blade slides passed harmlessly and lodges into the wall of the cabin.
@@ -529,4 +525,18 @@ Blood seeps out of Vance's head, as Mr. V rushes to the edge of the boat to look
 
 "Sir, which docks?"
 
-"I don't know, the docks by the water."  He hangs up the phone.
+"I don't know, the docks by the water."  He hangs up the phone, walking back to the boat, climbing up, and starting the engine.
+
+The boat pulls quietly away as the sound of sirens is faintly heard in the distance.
+
+***
+
+Jeffery is sitting at the front desk of the tanning salon, windows intact, using the computer.  Google is displayed on the screen, and he's typing in "Timmy Kushman" for the thousand time.  His eyes light up as an entry is returned.
+
+"Timmy, have I found you?"
+
+He clicks on the link and begins reading,
+
+"SEATTLE - The body of a young man was found in an alleyway on Capitol Hill early this morning.   The investigating officers found evidence of drugs on the body, and are assuming it was a drug deal gone wrong.  He was found stabbed repeatedly, with his pants around his ankles.  The victim was identified as Timmy Kushman, from the Alaska Driver's License in his wallet.  His next of keen has not been located."
+
+Tears are streaming down Jeffery's face as he reads the article.  He clicks off the computer, stands up, and goes to the backroom.  Methodically, he packs the marijuana into the large blue bong, flicks the lighter, and takes a long drag, holding the smoke in his lung for a moment before letting a long, slow stream of smoke out of his lips.
