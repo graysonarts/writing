@@ -368,3 +368,34 @@ Mr. V looks at the dime bag, "Really?"  He lets out a heavy sigh, picks up the b
 Mr. V strolls out through the newly opened window, "Have fun reporting that to the cops, buddy.  Explain to them why I did it."
 
 Jeffery calls after him, "yeah I'll explain what your tuna is too, asshole."
+
+***
+
+The swelling of Timmy's face has lessened in the last day.  He dismisses questions from the rotation of tanning customers that have been streaming in and out during the day.   The vacant apathy in his eyes discourages people from pushing the issue, and he wiles away the time looking at facebook on his laptop.
+
+Jeffery enters, eyes glued to his shoes as the bell of the salon chimes up.  Timmy's jaw clenches and he winces.  Jeffery puts his hands quietly on the desk, intertwining his fingers.  "My heart hurts, Timmy."  Timmy's eyes drill holes through Jeffery's bloodshot eyes.  "Pop-pop lost his cool."
+
+Timmy says nothing.
+
+"Now Timmy, I need you to tell me, exactly, what you are getting up to with your coach."
+
+"Well, he doesn't beat the crap out of me, for starters.  He actually cares about me."
+
+"Timmy, that coach hasn't done anything untowards with you, has he?"
+
+Timmy rolls his eyes, "What we do is not untowards."
+
+"Timmy, you tell me, and tell me now."
+
+Timmy slams his laptop closed, "Fine, you want to know what we do?  Tourists are idiots!  And holy shit, do they have money, so we take them on tours, and sell them overpriced fake shit.  We make a killing!"
+
+Jeffery sighs heavily, "I know, Vance told me already."
+
+"Then why did you ask?"
+
+"We need some truth between us, so now I have some truth for you.  Vance asked me to provide refreshments for your guests."
+
+"Great."
+
+***
+
