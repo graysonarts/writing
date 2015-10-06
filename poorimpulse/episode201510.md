@@ -501,3 +501,32 @@ Jeffery opens the door, and pours himself out of the truck, stumbling onto the g
 
 ***
 
+The dull pain in Timmy's head crescendos into a roaring headache as the sunlight hits his eyes.  "Goddamn it."  He stumbles to the kitchen, retrieving one of pop-pop's vicodins from the medicine cabinet, and downs it dry.
+
+Mr. V's briefcase is sitting closed on the kitchen table along side the money bag that Jeffery took from Timmy.  He smiles, and calls out, "Pop-pop?"  No answer, so he pulls out his phone.  A voicemail blinks on the phone.  He listens to the message:
+
+*Timmy, it's pop-pop, Mills arrested me, come bail me out."
+
+Timmy eyes the briefcase and the bag.  He picks them up, and leaves the cabin.  He gets into his Yugo, and starts driving south.
+
+***
+
+
+
+***
+
+Vance parks at the docks right on time, and makes his way to the boat.  Mr. V is already there, sharpening the large knife they use for gutting the dolphin.  Vance climbs up to the boat, "Fine, 5% is better than 0%."
+
+Mr. V places the knife down, and walks to the gunwale of the boat, pulling the mooring lines off of the dock cleats.  Vance picks up the knife, and swings it Mr. V's back, but Mr. V ducks to coil the mooring lines as the blade slides passed harmlessly and lodges into the wall of the cabin.
+
+Vance strains to pull the knife out of the wall, "I'm going to give you your cut right now."  The knife slips out of the wall, and Vance stumbles backward towards the gunwale of the boat.  He loses his balance over the edge of the boat, and for a brief moment, suspended in a moment, Vance tumbles over the edge of the boat, head first into the dock.
+
+Blood seeps out of Vance's head, as Mr. V rushes to the edge of the boat to look over.  His voice flat and devoid of emotion, "Oh no, help?".  Slow steps down the ladder of the boat, Mr. V walks to the end of the dock where the emergency phone is located.  He dials 911.
+
+"911, what's your emergency?" a voice squawks over the phone.
+
+"There has been an accident.  At the docks, someone fell off his boat."
+
+"Sir, which docks?"
+
+"I don't know, the docks by the water."  He hangs up the phone.
