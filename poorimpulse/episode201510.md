@@ -395,7 +395,25 @@ Jeffery sighs heavily, "I know, Vance told me already."
 
 "We need some truth between us, so now I have some truth for you.  Vance asked me to provide refreshments for your guests."
 
-"Great."
+"Great.  Can I go now?"
 
 ***
+
+Vance is scrubbing the side of the boat, smears of red turning pink and running into the water with every pass of his sponge.  Mr. V at the fore of the boat, untangling a large fishing net.
+
+Timmy trots down the dock, towards Coach Vance.  When Vance sees him approaching, he slops the sponge back into his bucket, and jumps onto the dock.  They meet a few feet from the boat.
+
+"I told pop-pop everything, but then, so did you."
+
+Vance nods, "He can't do that to you."  Vance reaches his hand out to Timmy's face, fingers gentle against the bruised flesh, turning his head to the side.  "It'll heal though."
+
+Timmy backs away from his hand, "Yeah, it's fine.  Pop-pop is willing to offer the pot to the tourists.  We just need to find a way to transport it to the boat."
+
+"You can bring it in your gym bag.  Your pop-pop didn't take kindly to that, but it's the only way.  Go tell him that I'd like to meet later this afternoon, after we get back from fishing."
+
+Timmy nods and turns around and heads back down the dock as Mr. V is climbing up off the boat onto the dock.
+
+"What did that little shit want?"
+
+"Oh, nothing.  Curling crap."
 
