@@ -457,3 +457,28 @@ Vance nods.
 
 ***
 
+Mr. V's apartment is in disorder, with empty bottles littering every surface.  He is sitting out his kitchen counter, slumped over, an empty bottle of Jack Daniel's wedged in his hand.  "I'm going to kill that little shit," his words slur through the alcohol, as he pushes his free hand into the counter, wrenching himself up out of his chair.
+
+The ground bucks and dips under his feet as he makes his way to the door.  "Little shit's going to die tonight."  His hand gropes for the shotgun hanging on the wall.  Fingers curling around the barrel, he slams the door on his way out.
+
+The short distance to the tanning salon proves difficult as Mr. V swerves down Tongas Ave, empty of cars, a gentle fog beginning to roll in off the water.  The tires of his truck squeal with the slam of the brakes as Mr. V skids to a stop in front of the tanning salon.  Two large pieces of glass sit against the outside of the tanning salon, stacked together, the replacement windows for the store front.
+
+Jeffery is sitting at the front desk, reading a magazine with Timmy to his side, working on homework.  They both look up with the sound of the squealing tires.
+
+Mr. V stumbles out of the truck, slinging the shotgun over his shoulder.  Mr. V's eyes lock with Jeffery's eyes for a brief moment because Jeffery pulls a shotgun from under the counter.  Mr. V pumps the shotgun once, levels the shotgun as the windows, and pulls the trigger.  Glass rains down to the ground as the two panes of glass shatter into a million pieces.
+
+Mr. V steps through the door, "Hey there, pop-pop, Here there little Asshole.  I hear you've been stealing money from me by using my boat for your little tourist scam."
+
+Jeffery pumps his shotgun, "You come into my tanning salon, and threaten my grandson?  You take a step back motherfucker."
+
+Mr. V's face takes on the hue of a tomato, "You and your little shit of a grandson have taken more than enough advantage of me.  You took my money, didn't give me my pot, and now your grandson is using my boat without permission.  You hit your grandson, beat him to a pulp, and now you are defending this little fucker?"
+
+Jeffery points his shotgun at Mr. V, "No one abuses my grandson but me, buddy.  Now how about we get a little baked and talk about this like rational people?"
+
+Mr. V shakes his head violently, "Fuck no, we aren't going to talk about this.  Timmy need to be taught a goddamn lesson."
+
+Jeffery stands up, dragging Timmy up out of the chair, "Okay fine, how about you just knock him out with the stock of the gun, there, that'll teach him good, and now get the cops involved.  Can't have you shooting up my grandson."
+
+Timmy tries to dislodge Jeffery's grip from his shirt, "Wait a minute!"  He struggles against Jeffery's hold as Mr. V raises the shotgun above his head.  The stock connects with Timmy's face, a dull crack echoes against the walls, and Timmy collapses to the ground.
+
+***
