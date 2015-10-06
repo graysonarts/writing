@@ -417,3 +417,43 @@ Timmy nods and turns around and heads back down the dock as Mr. V is climbing up
 
 "Oh, nothing.  Curling crap."
 
+A skinny man with glasses comes running up the dock wearing a heavy sweater, and shapeless cloth shoes, "Ahoy, Captain!" he hollers towards the boat.  Vance and Mr. V turn around and stare at him.
+
+The man comes to a skidding stop, breath heavy with excitement. "I had the best time a couple of months ago."  Mr. V eyes narrow, darting between Vance and this new man.  "The northern light tour was amazing.  I hear there is a special one, something about a rare event?  Are you going to run another tour?"
+
+Mr. V's eyes are a fine line of incredulity, "This is a fishing boat, not a tour boat.  I think you have it wrong."
+
+"No, no, the boat was called the 'Totally Catching Tuna'," he responds, pointing at the stern of Mr. V's boat as Mr. V shakes his head.
+
+"No, Captain Ahab, here," pointing to Vance who puts his hands up and shakes his head in response, "took me out.  You have to remember me, Captain?  We took all those selfies together."
+
+The man pulls out his phone, flipping through his gallery of selfies, "See, there is the protective parka they sold me, it kept me safe from all the radiation," he continues flipping through pictures of the boat, Vance, and the other guests, "Oh, and here is one of that nice young man who sold me the ticket and the parka," He shows Mr. V a picture of Timmy giving the peace sign.
+
+"Goddamn it, little Timmy.  Well, sir, there are no tours any longer, and no rare event happening.  Go back to your hotel."
+
+The man hangs his head, shaking it as he turns around and walks off the dock.
+
+Mr. V's face is solid red, "What the fuck have you been using my boat for, Vance?"
+
+"Okay, okay, we've been running tours.  Calm down," Vance adds distance between him and Mr. V who is shaking.
+
+"I'm not going to calm down, you, you are done with this fishing operation."
+
+"Wait a second, let's not be rash here."
+
+Mr. V steps forward, finger pounding into Vance's chest, "Don't be rash?  Don't be rash?  You've been stealing from me!  That scam sounds great, but I deserve a large cut.  It's my boat!"
+
+"It's not  very profitable."
+
+"Bullshit.  If it wasn't, you wouldn't be doing it."
+
+Vance takes another step backwards, his heels hitting the edge of the dock, "It's not enough to cut you in."
+
+Mr. V advances again, closing the gap, "Then I'll take 95%, and you can get 5%, and that little shit, Timmy, gets 0%.  Final offer, or you are out of the fishing business, out of the tour business, and if I ever see you again, out of life.  Got it?"
+
+Vance nods.
+
+"Meet back here at 5am with your answer, if you take my deal, show up.  If you don't, you better get the fuck out of town."
+
+***
+
