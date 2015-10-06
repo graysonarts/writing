@@ -482,3 +482,22 @@ Jeffery stands up, dragging Timmy up out of the chair, "Okay fine, how about you
 Timmy tries to dislodge Jeffery's grip from his shirt, "Wait a minute!"  He struggles against Jeffery's hold as Mr. V raises the shotgun above his head.  The stock connects with Timmy's face, a dull crack echoes against the walls, and Timmy collapses to the ground.
 
 ***
+
+Jeffery pours the last drip of the bottle of vodka into his glass, downing it in one quick motion.  A canister of gasoline sits next to him on the porch of his small cabin.  He stands up, grabbing the canister.  He looks over his shoulder into the window of the cabin.  Timmy is laying out on the sofa, ice pack resting on his head.
+
+"Goddamnit Timmy, why do you bring so much trouble into my life."  He places the canister of gasoline into the bed of his truck, oozes into the drivers seat, and reverses with quick jerky motions down the driveway.
+
+His path to the docks is not anything but straight, truck swerving into the oncoming lane repeatedly.  Officer Mills is sitting on the side of the road, and flips on his lights and sirens as Jeffery veers across an intersection, barely missing a parked car.
+
+"Mr. Kushman, pull over, pull over now."  Jeffery shouts obscenities out of the window at the cop, half-intelligible.  Officer Mills pulls along side of Jeffery, continuing to order him to pull over, and when Jeffery does not step, he begins to force the truck off the road.
+
+Jeffery overreacts to the side swipe from Officer Mills' cruiser, careening into a barricade.  The truck slams to a stop.  Officer Mills walks over to the truck, "License and Registration, Sir."
+
+"Get out of my face, Bobby, I have a boat to burn down."
+
+Officer Mills unclasps his service revolver from the holster, and levels it at Jeffery's face.  "Get out of the car, now, face down on the ground."
+
+Jeffery opens the door, and pours himself out of the truck, stumbling onto the ground.  Officer Mills jerks Jeffery's arm behind his back, slapping a pair of handcuffs onto him.
+
+***
+
