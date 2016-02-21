@@ -535,6 +535,32 @@ The boat pulls quietly away as the sound of a siren is faintly heard in the dist
 
 ***
 
+Vance coughs a dry, throaty cough.  "Wa– water."  A bent straw touches his lips, and he sucks lukewarm water into his mouth.  As he opens his eyes, the light blinds him, his pupils contract slowly to adjust to the light.
+
+A nurse calls down the hall, "He's awake."  The sound of comfortable shoes slapping against the linoleum tile rings out, and a lap-coated woman enters the room.  As she comes to a stop at Vance's bedside, her curly hair settles down on her shoulders.
+
+"Now, sir, please do not be alarmed."
+
+Vance strains to sit up, concentrating all his effort on the act, but his body does not move.  The beep of the heart rate monitor next to him begins to pick up its pace.
+
+"Now, sir, please try to remain calm.  The fall you took, it snapped your spine."
+
+Vance's breathing quickens.
+
+"You are paralyzed from the neck down."
+
+Vance's breathing is shallow and quick; his head gets light, and the world begins to fade out.
+
+***
+
+The engine sputters its last breath and goes silent.  Mr. V bangs on the throttle stick, "No, no, no!"  A patchwork of facial hair counts the days on the boat.  Mr. V melts down the ground, grabbing his hair.  He lets out a guttural scream that is swallowed by the open ocean.
+
+An ice chest is kicked over on the floor, empty wrappers wiggling in the wind, the last of the emergency food supply.  Mr. V walks with slow steps towards the bow of the boat, the evening air crisp against his chapped lips.
+
+As the boat drifts forward, his eyes fixate on the undulating water that gently rocks the boat.  He looks over his shoulder, and then leans over the gunwale of the boat.  He plunges into the icy depths with a large splash.  The water closes around him; his breathing is cut short by the shock of the cold.
+
+***
+
 Jeffery is sitting at the front desk of the tanning salon, windows intact, using the computer. Google is displayed on the screen, and he types in "Timmy Kushman" for the thousand time. His eyes light up as an entry is returned.
 
 "Timmy, have I found you?"
