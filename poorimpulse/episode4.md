@@ -20,7 +20,7 @@ He nods to the doorman at the Rolex store.  One day, he'll be able to afford one
 
 Moments later, he's standing face to face with the callbox at One Hyde Park.  "Now where is her number?" he talks to himself.  A woman in a black pants suit walks out the door, narrowing her eyes at him as she exits.  He smiles, catching the door to hold it open for her as she leaves.
 
-He slips into the lobby as she turns her head to watch him, phone already to her ear.  He presses the up button on the lift five times, no more, no less, exactly five, and then puts his hands behind his back.  He rocks back and farther on his feet as he waits for the doors to open.
+He slips into the lobby as she turns her head to watch him, phone already to her ear.  He presses the up button on the lift five times, no more, no less, exactly five, and then puts his hands behind his back.  He rocks back and forth on his feet as he waits for the doors to open.
 
 ***
 
@@ -34,25 +34,25 @@ The door bursts open, and Victor turns, locking eyes on the red haired man that 
 
 "Isabelle, where is Isabelle?"
 
-"Get off me, geezer, there's glass cuttin' me john thomas."
+"Bloody hell, there's glass all over me john thomas."
 
-Kyle lets Victor up, grabbing him under the arm and shoving him onto the bed.  Victor lands on his back, and then props himself up with his elbows. "Right, so last night we were getting proper lashed, me and my mate, Chadwick, and this right fit lass was chatting us up.  That was this Isabelle, right, so she took us back to her's."  he points his finger down, "And we copped off.  Not bent, mind, bit of an Eiffel tower, if you catch my meaning."
+Kyle lets Victor stand up, grabbing him under the arm and shoving him onto the bed.  Victor lands on his back, and then props himself up with his elbows. "Right, so last night we were getting proper lashed, me and my mate, Chadwick, and this right fit lass was chatting us up.  That was this Isabelle, right, so she took us back to her's."  he points his finger down, "And we copped off.  Not bent, mind, bit of an Eiffel tower, if you catch my meaning."
 
 The back of Kyle's hand connects the side of Victor's head with a solid thump.  "That's my niece you are talking about."
 
 "She was a bit of a hoover, if I ever seen one.  Right, so this morning, Chadwick was off gettin' coffee or whateva, and I was getting cleaned up, and next thing I knew, right brotha, window done in, and disappeared, smoke and then the bird flew away.  No idea what happen."
 
-Kyle breaths to a count of ten, and then exhales.  "Right then, you're coming with me."
+Kyle breaths in to a count of ten, and then exhales.  "Right then, you're coming with me."
 
 "I'm starkers, can I at least get a robe?"
 
-Kyle nods, "hurry up, we have to find my niece."
+Kyle nods, "hurry up, we must find my niece."
 
 ***
 
 LOGIC is located through a red door in the back of the cafe at the entrance to the concert hall at St John's Smith Square.  It's a convenient location situated near enough to Parliament and the Palace that when Jane Thornhill needed to make a request of the crown, she could do so in as little time as possible.
 
-Today is not one of those days.  Today, Jane is pouring over accounting statements, trying make sense of the latest rash of defections from the organization.  She is wearing, like most days, a form fitting black suit with her black hair pulled into a tight bun.  A deep sigh, and she closes the lid of her laptop.  "Yes, Riley?"  Her voice is smooth and melodic, almost soothing.
+Today is not one of those days.  Today, Jane is pouring over accounting statements, trying to make sense of the latest rash of defections from the organization.  Like most days, she is wearing a form fitting black suit with her black hair pulled into a tight bun.  A deep sigh, and she closes the lid of her laptop.  "Yes, Riley?"  Her voice is smooth and melodic, almost soothing.
 
 She addresses the thin boy with shaggy blond hair like a mother would a child who is asking for a car. "I wish you'd reconsider my assignment.  I can do more than just make things.  I'm good in the field."
 
@@ -74,7 +74,7 @@ Chadwick's hangover has been blunted by the pint he had before starting the jour
 
 A man, about his age, is standing near by, and Chadwick keeps catching the man looking at him.  For a brief moment, their eyes meet, and the man smiles at him.  His white teeth contrast against his dark skin.  Chadwick turns away.  Why do they always have to hit on him?
 
-Ilford station is run down and dirty.  Chadwick turns his nose up at the piss on the ground as he surfaces from the station. This is why Chadwick tries to never take a tube home, but Mr Barrow, his valet, did not answer when he called to be picked up.
+Ilford station is run down and dirty.  Chadwick turns his nose up at the piss on the ground as he surfaces from the station. This is why Chadwick tries to never take the tube home, but Mr Barrow, his valet, did not answer when he called to be picked up.
 
 His house is a short taxi ride from the station, but as Chadwick is hailing a taxi, he reaches into his pants to find that his wallet is absent. Bloody hell, did he get pickpocketed?  He waves the taxi away and continues to his house on foot.
 
@@ -120,7 +120,7 @@ Riley and Kyle turn to look at Victor, mouths hanging agape.  Kyle picks up the 
 
 "I can go with you, you shouldn't go alone."
 
-"Sorry, Riley, Thornhill would do my nut in if I took you on fieldwork.  But Mr. Inkwell here, he can come since him and Mr Worthington are such good mates."
+"Sorry, Riley, It would do Thornhill's nut in if I took you on fieldwork.  But Mr. Inkwell here, he can come since he and Mr Worthington are such good mates."
 
 Victor stands up, "Let's go geezer."
 
@@ -166,17 +166,17 @@ Chadwick nods and stands up, leaving his cup of tea untouched.  "Very well, sir,
 
 Kyle leads them down into the small cafe in St John's Smith Square.  They walk to the midpoint of the cafe, turn left, turn right, and are at a bright red door next to the drink fill station.  Kyle leans over and places his eye against a small sensor in the door.
 
-A light turns from red to green, and the clunk of the security bolts clinking open echoes in the quite cafe.  A few heads turn to look at them as they slip through the door and the bolts clink back into place.
+A light turns from red to green, and the clunk of the security bolts clinking open echoes in the quiet cafe.  A few heads turn to look at them as they slip through the door and the bolts clink back into place.
 
 Through the door is a hallway with brushed aluminum walls, and lighting with a faint blue tint to it.  There is a strong wind that blows down the tunnel, and they press against it.
 
-Beyond the doorway at the end of the hall, Riley sits on a counter drinking a cup of coffee and reading from a tablet device.  He looks up as they step through the doorway.  "More civies, Kyle?  Jane's not going to like this."
+Beyond the doorway, at the end of the hall, Riley sits on a counter drinking a cup of coffee and reading from a tablet device.  He looks up as they step through the doorway.  "More civies, Kyle?  Jane's not going to like this."
 
 "Material witnesses, they need to be investigated.  Take them into interrogation room one, and I'll be with them in a second."
 
 Riley puts the tablet down on the counter, hoping off, clicks his heels together and salutes Kyle.  He turns towards Chadwick, and motions down the right corridor.  "This way, your majesty."  Chadwick narrows his eyes at Riley, and walks in the direction that was offered.  Victor follows suit.
 
-Kyle walks down the left corridor, enter a door that says "Director of Field Operations."  Jane looks up at Kyle as he enters.  She motions for the chair in front of her, and Kyle sits down. Her office is spartan with a simple metal desk, a small filing cabinet, and the same bluish lights as the hallway.  She has a single small framed picture on her desk, but otherwise, her office is barren of anything personal.
+Kyle walks down the left corridor, enters a door that says "Director of Field Operations."  Jane looks up at Kyle as he enters.  She motions for the chair in front of her, and Kyle sits down. Her office is spartan with a simple metal desk, a small filing cabinet, and the same bluish lights as the hallway.  She has a single small framed picture on her desk, but otherwise, her office is barren of anything personal.
 
 "Civilians?"  She cocks her head to the side.  "The investigators from MI5 found something.  They believe the Zolotov brothers are involved."
 
@@ -198,7 +198,7 @@ Kyle stares at Jane for a moment.  She gives a small shrug, and shoos him out th
 
 An hour later, Kyle, Victor and Chadwick pull into parking space in front of the Hammer and Sickle pub in Tottenham.  Chadwick rubs his hands together, "Alright then, let's do this."  They enter the pub.
 
-It is a standard pub a mix of dark wood and brass everywhere, with a red hammer and sickle hanging over the bar.  The barman is sitting on a stool in front of the bar watching a replay of the Russian Football Club playing in last year's world cup.  The barman speaks up, a hard mixture of british with a russian accent, "This game never gets old, what do you want?"
+It is a standard pub, a mix of dark wood and brass everywhere, with a red hammer and sickle hanging over the bar.  The barman is sitting on a stool in front of the bar watching a replay of the Russian Football Club playing in last year's world cup.  The barman speaks up, a hard mixture of british with a russian accent, "This game never gets old, what do you want?"
 
 The pub is empty, not surprising given the time.  "About an hour, it should be filling up, let's–"
 
@@ -210,7 +210,7 @@ Victor puts out his hands, "Alright, watch the master."  He gets up, and Kyle lo
 
 Boris has a hand on Victor, in a moment, Victor is sitting on the ground.  Chadwick shakes his head and stands up before Victor returns to the table.  He crosses to the center of the room, holding his credit card about his head, "It's my birthday, and the drinks are on me, friends!  Barman, I'd like vodka, please?"
 
-The amity the patrons of the Hammer and Sickle feel together Chadwick grows fervent in the hour that Chadwick is handing out free drinks.  The Zolotov brothers just stare at him.  Nearing the hour mark, Chadwick approaches their table.  "Brothers, comrades!" Anton, the oldest of the three, visible lines of age beginning to appear around his eyes, stands up, but Nicholay puts his hand on Anton's arm, and pulls him down.
+The amity the patrons of the Hammer and Sickle feel toward Chadwick grows fervent in the hour that Chadwick is handing out free drinks.  The Zolotov brothers just stare at him.  Nearing the hour mark, Chadwick approaches their table.  "Brothers, comrades!" Anton, the oldest of the three, visible lines of age beginning to appear around his eyes, stands up, but Nicholay puts his hand on Anton's arm, and pulls him down.
 
 Chadwick drops four shot glasses onto the table and unscrews the lid of the vodka bottle.  The vodka sloshes into the glasses and onto the table.  He picks up one of the shot glasses, and motions to the brothers.  They pick up their shot glasses, and all four down in a single, quick gulp.  Chadwick coughs, and the brothers smile.
 
@@ -248,7 +248,7 @@ Victor shouts out, "Bloody hell, that was brilliant."
 
 Kyle's breathing returns to normal, "Yes, excellent work, both of you."
 
-Chadwick pushes his head forward, between the two front seats, "Is that what its like to be a spy?"
+Chadwick pushes his head forward, between the two front seats, "Is that what it's like to be a spy?"
 
 Kyle coughs, "I'm not a spy.  I'm a mercenary."
 
@@ -256,7 +256,7 @@ Chadwick waves his hand, "That's even better, that means you get paid well."
 
 Kyle nods his head, "Yeah, that's right, paid real well."  His voice is flat with no variations.
 
-"Do you pay for Isabelle's flat then?  What's that run?" Victor looks at Kyle for a moment before moving back to the road.  "I looked it up on the 'net, it's like 25mil."
+"Do you pay for Isabelle's flat then?  What's that run?" Victor looks at Kyle for a moment before looking back to the road.  "I looked it up on the 'net, it's like 25mil."
 
 "I did not pay for Isabelle's flat.  Her mother, my sister, wait why am I telling you this?"
 
