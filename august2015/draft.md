@@ -3749,7 +3749,3 @@ Dominic nods, "One last rodeo, eh?"
 Vinzent walks up behind Dominic, placing his chin on Dominic's head, sending his hands down Dominic's chest, "He's up for it, give us the details."  Dominic rotates his head up to look at Vinzent, smiling.  Vinzent kisses his forehead.
 
 "Okay, give me the plan."
-
-# END
-
-END
