@@ -38,7 +38,13 @@ Boris keeps his mouth shut, and shakes his head.  After a brief moment, Boris ga
 
  Riley and Chadwick are sitting opposite each other in the kitchen, eyes locked, faces straining.  Kyle and Victor enter from the hallway.  Kyle's voice is soothing, "we have a lead on the remaining Zolotovs.  Riley, gear up the lads?"
  
- Riley hops off the counter top, and walks out the nearest hallway, and returns a brief moment later.  He tosses a watch at Kyle, "X-ray scanner in watch form.  Managed to finally get it working.  Might come in handy seeing weapons or something.  It's millimeter wave, so if nothing else, you can look at people's junk."
+ Riley hops off the counter top, and walks out the nearest hallway, and returns a brief moment later.
+ 
+ He places 3 rings down on one of the tables in the kitchen and motions for the three of them to pick them up.  "Slicer rings, great little weapons in a pinch.  Put them on your finger, and if you need the blade, feel for the ridge with your thumb.  The blade will extend from the opposite edge."  Victor fingers the ridge and a sharp edge pops up.  "Careful Victor, it can cut through kevlar."
+ 
+ "Wicked!"
+ 
+ Next, he holds up a watch, "X-ray scanner in watch form.  Managed to finally get it working.  Might come in handy seeing weapons or something."  He turns the dial on the face of the watch and holds it up in Chadwick's direction.  One of his eyebrows raises up as he turns the dial back and tosses the watch to Kyle. He looks sideways at Chadwick, "It's millimeter wave, so if nothing else, you can look at people's junk."
  
  He then tosses a pair of socks at Victor.  "Radio-jamming socks.  Click your heel together to turn it on and off. I also have a small emp device in the toe, but, well, it uses an explosion, so it might hurt.  Not really tested that part, so I'd avoid using it, but the radio-jammer is solid."
  
@@ -62,9 +68,23 @@ Boris keeps his mouth shut, and shakes his head.  After a brief moment, Boris ga
  
  Chadwick steadies the gun against the roof of the car, and aims for the tires of the Russians' car.  The shot goes wide, hitting the tire of another car, causing it to spin out.  The Russians plow through the struck car, causing it to spin further into the barricade.  Another shot, this time shattering the windshield of the Citroen, glass raining down on them.
  
+ Anton's shooting is a damn sight better than Chadwick's, and manages to clip Chadwick in the shoulder.  The yell that Chadwick emits sends waves of panicked questioning out of Kyle's mouth before Chadwick drops down in the passenger's seat again, hand clutching the flesh wound in Chadwick's shoulder.
+ 
+ "Take the wheel, I will get these bastards."  Kyle pulls the pistol from Chadwick's hand and motions for the steering wheel.  He clears the remaining glass out of the window with the barrel of the gun and props it against the sill of the busted out window.
+ 
+ "Shot already!" Chadwick screams as the car careens off of the barricade.  Reaffirming his grip on the gun, Kyle pulls the trigger.  The sound of the gunshot is intense as both cars veer into each other.  Anton's bullet finds their tire in short order, both cars down to three tires.
+ 
  Victor throws his backpack onto his back, and kicks open his door.  The door swings open and he shrinks back into the car as the Citroen comes in for another body check, ripping the door off its hinges.  It flies away behind them, and a cacophony of horns and swerving tires rise up in reaction.
  
- Victor perches on the edge of the car, and waits for the right time.  Another shot is fired from above, and Victor jumps out of the Audi.  His jump is timed correctly, and he lands with a soft thump in he back seat of the Citroen.  Anton turns around, gun swinging into Victor's face as he pulls the bottle of Alize from his backpack.  "Drinking is alot better than fighting, innit?  Pull this jam over, go back to mine, and get lit?"
+ "Right, I believe Riley added some enhancements, let's see." Kyle flips open a panel in the center console.  A series of switches and buttons line the inside of the compartment beyond.  He flips a switch and an oil slick shoots out the back.  "Nope, not that one."  Cars behind them spin out of control as they hit the oil.  "Bloody hell, labels, Riley, labels!" He presses another button, and the inside of the Audi begins to light up, changing colors in a slow fade across the rainbow.
+ 
+ Chadwick rolls his eyes, "That's useful."
+  
+ Victor smiles, "Oi, that'd be great for shagging."
+ 
+ Kyle pulls the largest lever in the compartment and a harpoon shoots out, sinking to the door of the Citroen.  A winch activates, the slow rotations pulling the cars closer together, millimeters at a time.
+ 
+Victor perches on the edge of the car, and waits for the right time.  Another shot is fired from above, and he jumps out of the Audi.  His jump is timed correctly, and he lands with a soft thump in he back seat of the Citroen.  Anton turns around, gun swinging into Victor's face as he pulls the bottle of Alize from his backpack.  "Drinking is alot better than fighting, innit?  Pull this jam over, go back to mine, and get lit?"  The harpoon's fins rend the side of the door as it pulls free, wheeling into the house it was fired one.  The metal screeching echoes across the highway.
  
  Anton continues to hold the gun at Victor who is shaking the bottle of Alize.  Nicholay speaks up, "Antonska, put the gun down, the little man is funny."  Anton lowers the gun, and Nicholay takes an exit off the M4, pulling into a small pub's parking lot.  The Audi pulls in a brief moment later.  By the time Kyle and Chadwick walk up to the Citroen, The Russians and Victor have drinks in hand.  They all exchange looks as Nicholay gets out of the car.
  
@@ -100,7 +120,7 @@ Boris keeps his mouth shut, and shakes his head.  After a brief moment, Boris ga
  
  "Great shooting! Now Victor, what did you find out from the Zolotovs?"
  
- "Right, so this bird, Casey or something, hired them to get Issa, and they dropped her at the tower of London, whitehall.  In front of the chopping block."
+ "Right, so this bird, Casey or whatever, hired them to get Isa, and they dropped her at the tower of London, whitehall.  In front of the chopping block."
  
  "Riley, hack into CCTV and see if you can kind the exchange."
  
@@ -114,7 +134,7 @@ Boris keeps his mouth shut, and shakes his head.  After a brief moment, Boris ga
  
   "For fucks sake, Riley."
   
-   "It's my fault, innit?" Victor pulls Kyle's attention away from Riley. "Right, no clue what they want of Issa, but we find the bird, she can lead us, yeah?"
+   "It's my fault, innit?" Victor pulls Kyle's attention away from Riley. "Right, no clue what they want of Isa, but we find the bird, she can lead us, yeah?"
    
     Kyle nods and Riley lets out a whoop, "Got her."  Riley pulls up an enlarged view of a woman with short cropped black hair wearing a black ball cap, pacing back and forth in front of the chopping block used to decapitate Henry the VIII's wives.  "Running facerec."  A few minutes pass as the progress bar on the screen fills up.  A ding sounds out, "Matched.  Cas-Caskiya-"
     
@@ -124,5 +144,56 @@ Chadwick leans in to get a better look at Kseniya's face, "She's quite fit."  Ri
 
 Riley smiles up at Chadwick, and goes back to typing on the computer.  "MI-5 records show she works at the tower, pulling up current schedule."  His fingers fly across the keyboard.  He pauses for a moment to take a sip from his coffee cup, "She gets off work at 10pm tonight."
 
-"Brilliant! Let's go get her."
+"Brilliant!"
 
+***
+
+"The metro service is having a fit over this, Kyle." Ms Thornhill is pacing behind her desk.  "Endangering civilians, completely undisciplined recruits, wanton destruction of government property."  Kyle hangs his head, looking at his feet, "And they are asking for damage compensation.  2 million pounds.  2 million!"
+
+"Sorry, mum, it happened quickly, no time to think."
+
+She slams her hand onto the desk and leans down into Kyle's face.  Her breath is tinged with scotch, "Sort it out, and get those two properly trained.  Assign Riley to Chadwick, and you handle Victor.  No more fuck ups."
+
+"Riley and Chadwick are rather volatile, rather better for me to handle Chadwick."
+
+"No, Victor will be the hard recruit to break.  Riley can handle Chadwick."
+
+"Yes, mum."
+
+"You'll need to take the wagon.  It's going to take Riley weeks to fix what you did to the Audi."
+
+"Yes, mum." 
+
+***
+
+Victor sits on a bench outside of the Tower of London, looking down at his watch, the time flashes "22:05".  His leg vibrates as he looks around, trying to spot Kseniya.  His green hoodie is zipped up against the encroaching cold of the evening.  His hands are in the pockets of the hoodie and he stands, clenching two small bottles of Kalinska Imperial Vodka, sweat making them slippery.
+
+Kseniya exits the side entrance to the tower, scanning the pathway as she does.  Victor's feet carry him to her, cutting across her path.  He leans against a light pole and brings out the bottles of vodka.  "Nice evening, innit?"  She cuts holes in his face with her eyes. "Drink and a snog?"  She faces cracks into a slight smile. "Yeah?"  She follows him in silence to the bench.
+
+His eyes catch Chadwick at a postcard stand, and Kyle sweeping the street with a broom.  She finally breaks the silence as she takes the tiny bottle of vodka from Chadwick, "What do you what?"
+
+"Just a bit of a snog, pretty bird like you."
+
+"I am not your average woman."
+
+"Never said that, yeah?"
+
+"What do you have to offer other than cheap vodka?"
+
+"I've got mad tongue skills."
+
+A laugh escapes her before she can chock it down with the vodka.  She shivers and rubs her arms, and Victor unzips his hoodie, draping it over her.  Kyle sighs "bloody hell, a LOGIC shirt?"
+
+Kseniya pulls out a larger bottle of vodka from her bag.  "How about we drink for contest? Loser must perform oral on winner?"
+
+Victor nods. "Alright then."  The shots go in turn, and Victor's world begins to take on a funhouse look as it warps and spins around him.  He drops his shot glass on the ground, and it shatters.  Distracted with the drinking contest, she does not notice Chadwick reaching into her backpack to remove her mobile from it.  He disappears behind a piece of shrubbery as the shot glass shatters.
+
+"LOGIC?"  Her eye brow arches, and her hands are around Victor's throat.  "Did LOGIC send you?"  This isn't the first time a woman has tried to chock Victor.  He reaches his arms between her's and lifts up and out, dislodging her hands from his neck.
+
+Victor grabs her arm and twists hard, rubbing the skin of her arm red.  Kseniya screams as Victor's slicer ring rips her skin open.  Wrenching her arm from his grasp, she drops her hands to the ground, flipping her legs into the air.  With a quick pop of her arms, her crotch lands on Victor's face, knocking him off balance.  Her legs squeeze tight against his neck, cutting off the blood flow to his head.  He struggles under her weight, neck and mouth held tight against her underside.  After a moment of grabbing at her leg trying to gain purchase, Victor goes limp.
+
+All of her attention had been on Victor, but when she releases her legs from around him and stands, she comes face to face with Chadwick, cane in hand.  He smiles as their eyes meet, and he drives the tip of the cane between her breasts.  She spasms and falls to the ground, landing squarely onto of the prone Victor.
+
+"Riley's hacked the phone.  We have the location where she is holding Isabelle."  Kyle high-fives Chadwick.  "You get Victor, I'll get Ms Mirinov."  Chadwick nods as Kyle pulls Kseniya off of Victor, throwing her over his shoulder with a loud sigh.  Chadwick does the same with Victor.  Their return to the car is slow and labored under the weight of their cargo.
+
+"Are we going to literally be holding the entire Russian Mob before the end of this?" Chadwick asks as they pull out of the parking spot.
